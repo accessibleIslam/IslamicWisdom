@@ -1,4 +1,5 @@
 # English Proverbs
+<hr>
 
 ## Actions speak louder than words
 ### Meaning
@@ -18,6 +19,7 @@ https://quran.com/61/2
 https://quran.com/9/96
 
 - **They [hypocrites] swear to you so that you might be satisfied with them. But if you should be satisfied with them - indeed, Allāh is not satisfied with a defiantly disobedient people.**
+<hr>
 
 ## A journey of a thousand miles begins with a single step
 
@@ -29,6 +31,7 @@ You must begin something if you hope to finish it; something that takes a long t
 https://quran.com/9/46
 
 - **And if they had intended to go forth, they [the hypocrites] would have prepared for it [some] preparation. But Allāh disliked their being sent, so He kept them back, and they were told, "Remain [behind] with those who remain."**
+<hr>
 
 ## All good things must come to an end
 
@@ -56,6 +59,7 @@ https://quran.com/18/32
 - **It may be that my Lord will give me [something] better than your garden and will send upon it a [disastrous] penalty from the sky, and it will become a smooth, dusty ground,**
 - **Or its water will become sunken [into the earth], so you would never be able to seek it."**
 - **And his fruits were encompassed [by ruin], so he began to turn his hands about [in dismay] over what he had spent on it, while it had collapsed upon its trellises, and said, "Oh, I wish I had not associated with my Lord anyone."**
+<hr>
 
 ## Don’t put all of your eggs in one basket
 
@@ -67,6 +71,7 @@ Don’t put all of your hopes and resources into one goal or dream
 https://quran.com/9/122
 
 - **And it is not for the believers to go forth [to battle] all at once. For there should separate from every division of them a group [remaining] to obtain understanding in the religion and warn [i.e., advise] their people when they return to them that they might be cautious.**
+<hr>
 
 ## Good things come to those who wait
 
@@ -86,3 +91,90 @@ https://quran.com/76/12
 https://quran.com/23/111
 
 - **Indeed, I have rewarded them this Day for their patient endurance - that they are the attainers [of success]."**
+<hr>
+
+## Honesty is the best policy
+
+### Meaning
+It’s always better to tell the truth than it is to lie
+
+### Relevant verses from the Qur'an
+
+https://quran.com/2/42
+
+- **And do not mix the truth with falsehood or conceal the truth while you know [it].**
+
+https://quran.com/3/71
+
+- **O People of the Scripture, why do you mix [i.e., confuse] the truth with falsehood and conceal the truth while you know [it]?**
+
+https://quran.com/5/119
+
+- **Allāh will say, "This is the Day when the truthful will benefit from their truthfulness." For them are gardens [in Paradise] beneath which rivers flow, wherein they will abide forever, Allāh being pleased with them, and they with Him. That is the great attainment.**
+
+https://quran.com/33/70
+
+- **O you who have believed, fear Allāh and speak words of appropriate justice.**
+
+<hr>
+
+## If you play with fire, you’ll get burned
+
+### Meaning
+If you get involved in something dangerous or beyond your abilities, you will probably experience negative consequences
+
+### Relevant verses from the Qur'an
+
+https://quran.com/5/101
+
+- **O you who have believed, do not ask about things which, if they are shown to you, will distress you. But if you ask about them while the Qur’ān is being revealed, they will be shown to you. Allāh has pardoned it [i.e., that which is past]; and Allāh is Forgiving and Forbearing.**
+- **A people asked such [questions] before you; then they became thereby disbelievers.**
+
+<hr>
+
+## No man is an island
+
+### Meaning
+No one is truly capable of living alone. We need human connection to be healthy
+
+### Relevant verses from the Qur'an
+
+https://quran.com/6/38
+
+- **And there is no creature on [or within] the earth or bird that flies with its wings except [that they are] communities like you. We have not neglected in the Register a thing. Then unto their Lord they will be gathered.**
+
+https://quran.com/4/1
+
+- **O humanity! Be mindful of your Lord Who created you from a single soul, and from it He created its mate, and through both He spread countless men and women. And be mindful of Allah—in Whose Name you appeal to one another—and ˹honour˺ family ties. Surely Allah is ever Watchful over you.**
+
+<hr>
+
+## The early bird gets the worm
+
+### Meaning
+People who get to places early and take an initiative have a better chance of success
+
+### Relevant verses from the Qur'an
+
+https://quran.com/57/10
+
+- **And why do you not spend in the cause of Allāh while to Allāh belongs the heritage of the heavens and the earth? Not equal among you are those who spent before the conquest [of Makkah] and fought [and those who did so after it]. Those are greater in degree than they who spent afterwards and fought. But to all Allāh has promised the best [reward]. And Allāh, of what you do, is Aware.**
+
+<hr>
+
+## When the going gets tough, the tough get going
+
+### Meaning
+When a situation becomes difficult, strong people don’t give up; they work harder
+
+### Relevant verses from the Qur'an
+
+https://quran.com/33/10 and https://quran.com/33/22
+- **[Remember] when they came at you from above you and from below you, and when eyes shifted [in fear], and hearts reached the throats, and you assumed about Allāh [various] assumptions.**
+- **There the believers were tested and shaken with a severe shaking.**
+- **And [remember] when the hypocrites and those in whose hearts is disease said, "Allāh and His Messenger did not promise us except delusion,"**
+...
+- **And when the believers saw the companies, they said, "This is what Allāh and His Messenger had promised us, and Allāh and His Messenger spoke the truth." And it increased them only in faith and acceptance.**
+- **Among the believers are men true to what they promised Allāh. Among them is he who has fulfilled his vow [to the death], and among them is he who awaits [his chance]. And they did not alter [the terms of their commitment] by any alteration -**
+
+<hr>
