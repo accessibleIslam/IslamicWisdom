@@ -178,3 +178,76 @@ https://quran.com/33/10 and https://quran.com/33/22
 - **Among the believers are men true to what they promised Allāh. Among them is he who has fulfilled his vow [to the death], and among them is he who awaits [his chance]. And they did not alter [the terms of their commitment] by any alteration -**
 
 <hr>
+
+## Better safe than sorry
+
+### Meaning
+It is better to take precautions than to regret later
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/71
+
+- **O you who have believed, take your precaution and [either] go forth in companies or go forth all together.**
+
+https://quran.com/4/102
+
+- **And when you [i.e., the commander of an army] are among them and lead them in prayer, let a group of them stand [in prayer] with you and let them carry their arms. And when they have prostrated, let them be [in position] behind you and have the other group come forward which has not [yet] prayed and let them pray with you, taking precaution and carrying their arms. Those who disbelieve wish that you would neglect your weapons and your baggage so they could come down upon you in one [single] attack. But there is no blame upon you, if you are troubled by rain or are ill, for putting down your arms, but take precaution. Indeed, Allāh has prepared for the disbelievers a humiliating punishment.**
+
+<hr>
+
+
+## Appearances can be deceptive
+
+### Meaning
+Something might be different from how they appear outwardly
+
+### Relevant verses from the Qur'an
+
+https://quran.com/63/4
+
+- **And when you see them [the hypocrites], their forms please you, and if they speak, you listen to their speech. [They are] as if they were pieces of wood propped up - they think that every shout is against them. They are the enemy, so beware of them. May Allāh destroy them; how are they deluded?**
+
+<hr>
+
+## Practice what you preach
+
+### Meaning
+Follow what you want others to follow
+
+### Relevant verses from the Qur'an
+
+https://quran.com/2/44
+
+- **Do you order righteousness of the people and forget yourselves while you recite the Scripture? Then will you not reason?**
+
+<hr>
+
+## No gain without pain
+
+### Meaning
+It is necessary to suffer or work hard in order to succeed or make progress.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/29/2
+
+- **Do people think once they say, “We believe,” that they will be left without being put to the test?**
+- **We certainly tested those before them. And ˹in this way˺ Allah will clearly distinguish between those who are truthful and those who are liars.**
+
+https://quran.com/3/142
+
+- **Or do you think that you will enter Paradise while Allāh has not yet made evident those of you who fight in His cause and made evident those who are steadfast?**
+
+<hr>
+
+## You can catch more flies with honey than with vinegar
+
+### Meaning
+It’s easier to win people to your side by persuasion and politeness than by confrontation and threats.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/3/159
+
+- **So by mercy from Allāh, [O Muḥammad], you were lenient with them. And if you had been rude [in speech] and harsh in heart, they would have disbanded from about you. So pardon them and ask forgiveness for them and consult them in the matter. And when you have decided, then rely upon Allāh. Indeed, Allāh loves those who rely [upon Him].**
