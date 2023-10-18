@@ -302,3 +302,37 @@ https://quran.com/5/45
 
 <hr>
 
+## Charity begins at home
+
+### Meaning
+The overriding demand to take care of one's family, before caring for others.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/33/6
+
+- **The Prophet is more worthy of the believers than themselves, and his wives are [in the position of] their mothers. And those of [blood] relationship are more entitled [to inheritance] in the decree of Allāh than the [other] believers and the emigrants, except that you may do to your close associates a kindness [through bequest]. That was in the Book inscribed.**
+
+<hr>
+
+## Cleanliness is next to godliness
+
+### Meaning
+Those who are pure and wholesome are close to God.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/74/1
+
+- **O you who covers himself [with a garment],**
+- **Arise and warn.**
+- **And your Lord glorify.**
+- **And your clothing purify.**
+
+https://quran.com/5/6
+
+- **O you who have believed, when you rise to [perform] prayer, wash your faces and your forearms to the elbows and wipe over your heads and wash your feet to the ankles. And if you are in a state of janābah, then purify yourselves. But if you are ill or on a journey or one of you comes from the place of relieving himself or you have contacted women and do not find water, then seek clean earth and wipe over your faces and hands with it. Allāh does not intend to make difficulty for you, but He intends to purify you and complete His favor upon you that you may be grateful.**
+
+
+<hr>
+
