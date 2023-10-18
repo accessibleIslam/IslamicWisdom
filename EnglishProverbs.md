@@ -251,3 +251,54 @@ It’s easier to win people to your side by persuasion and politeness than by co
 https://quran.com/3/159
 
 - **So by mercy from Allāh, [O Muḥammad], you were lenient with them. And if you had been rude [in speech] and harsh in heart, they would have disbanded from about you. So pardon them and ask forgiveness for them and consult them in the matter. And when you have decided, then rely upon Allāh. Indeed, Allāh loves those who rely [upon Him].**
+
+<hr>
+
+## A barking dog never bites
+
+### Meaning
+People who are loud and threatening don't back up their threats with action
+
+### Relevant verses from the Qur'an
+
+https://quran.com/2/246
+
+- **Have you not considered the assembly of the Children of Israel after [the time of] Moses when they said to a prophet of theirs, "Send to us a king, and we will fight in the way of Allāh"? He said, "Would you perhaps refrain from fighting if battle was prescribed for you?" They said, "And why should we not fight in the cause of Allāh when we have been driven out from our homes and from our children?" But when battle was prescribed for them, they turned away, except for a few of them. And Allāh is Knowing of the wrongdoers.**
+
+https://quran.com/59/11
+
+- **Have you not considered those who practice hypocrisy, saying to their brothers [i.e., associates] who have disbelieved among the People of the Scripture, "If you are expelled, we will surely leave with you, and we will not obey, in regard to you, anyone - ever; and if you are fought, we will surely aid you." But Allāh testifies that they are liars.**
+- **If they are expelled, they will not leave with them, and if they are fought, they will not aid them. And [even] if they should aid them, they will surely turn their backs; then [thereafter] they will not be aided.**
+
+<hr>
+
+## A House Divided Against Itself Cannot Stand
+
+### Meaning
+Success comes from sticking together and to do anything else is to invoke disaster.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/8/46
+
+- **And obey Allāh and His Messenger, and do not dispute and [thus] lose courage and [then] your strength would depart; and be patient. Indeed, Allāh is with the patient.**
+
+<hr>
+
+## An eye for an eye, a tooth for a tooth
+
+### Meaning
+For every wrong done there should be a compensating measure of justice.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/42/40
+
+- **And the retribution for an evil act is an evil one like it, but whoever pardons and makes reconciliation - his reward is [due] from Allāh. Indeed, He does not like wrongdoers.**
+
+https://quran.com/5/45
+
+- **And We ordained for them therein a life for a life, an eye for an eye, a nose for a nose, an ear for an ear, a tooth for a tooth, and for wounds is legal retribution. But whoever gives [up his right as] charity, it is an expiation for him. And whoever does not judge by what Allāh has revealed - then it is those who are the wrongdoers [i.e., the unjust].**
+
+<hr>
+
