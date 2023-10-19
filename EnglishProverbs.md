@@ -333,6 +333,72 @@ https://quran.com/5/6
 
 - **O you who have believed, when you rise to [perform] prayer, wash your faces and your forearms to the elbows and wipe over your heads and wash your feet to the ankles. And if you are in a state of janābah, then purify yourselves. But if you are ill or on a journey or one of you comes from the place of relieving himself or you have contacted women and do not find water, then seek clean earth and wipe over your faces and hands with it. Allāh does not intend to make difficulty for you, but He intends to purify you and complete His favor upon you that you may be grateful.**
 
+<hr>
+
+## An eye for an eye makes the whole world blind
+
+### Meaning
+A policy of revenge will lead to counterretaliations rather than peaceful resolutions.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/2/178
+
+- **O you who have believed, prescribed for you is legal retribution for those murdered - the free for the free, the slave for the slave, and the female for the female. But whoever overlooks from his brother [i.e., the killer] anything, then there should be a suitable follow-up and payment to him [i.e., the deceased's heir or legal representative] with good conduct. This is an alleviation from your Lord and a mercy. But whoever transgresses after that will have a painful punishment.**
+- **And there is for you in legal retribution [saving of] life, O you [people] of understanding, that you may become righteous.**
 
 <hr>
 
+## April showers bring May flowers
+
+### Meaning
+A period of discomfort or hardship can provide the basis for a period of happiness and joy.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/94/5
+
+- **For indeed, with hardship [will be] ease [i.e., relief].**
+- **Indeed, with hardship [will be] ease.**
+
+<hr>
+
+## Bad news travels fast
+
+### Meaning
+Bad news circulates quickly because people often spread it everywhere.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/83
+
+- **And when there comes to them something [i.e., information] about [public] security or fear, they spread it around. But if they had referred it back to the Messenger or to those of authority among them, then the ones who [can] draw correct conclusions from it would have known about it. And if not for the favor of Allāh upon you and His mercy, you would have followed Satan, except for a few.**
+
+<hr>
+
+## Bite the hand that feeds one
+
+### Meaning
+To cause harm to a benefactor (especially one that one is dependent on, thus with the idea that this behaviour is self-damaging). 
+
+### Relevant verses from the Qur'an
+
+https://quran.com/56/82
+
+- **And make [the thanks for] your provision that you deny [the Provider]?**
+
+<hr>
+
+## Cast pearls before swine
+
+### Meaning
+To give things of value to those who will not understand or appreciate them.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/5
+
+- **And do not give the weak-minded your property, which Allāh has made a means of sustenance for you, but provide for them with it and clothe them and speak to them words of appropriate kindness.**
+- **And test the orphans [in their abilities] until they reach marriageable age. Then if you perceive in them sound judgement, release their property to them. And do not consume it excessively and quickly, [anticipating] that they will grow up. And whoever, [when acting as guardian], is self-sufficient should refrain [from taking a fee]; and whoever is poor - let him take according to what is acceptable. Then when you release their property to them, bring witnesses upon them. And sufficient is Allāh as Accountant.**
+
+<hr>
