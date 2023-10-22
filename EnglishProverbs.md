@@ -402,3 +402,57 @@ https://quran.com/4/5
 - **And test the orphans [in their abilities] until they reach marriageable age. Then if you perceive in them sound judgement, release their property to them. And do not consume it excessively and quickly, [anticipating] that they will grow up. And whoever, [when acting as guardian], is self-sufficient should refrain [from taking a fee]; and whoever is poor - let him take according to what is acceptable. Then when you release their property to them, bring witnesses upon them. And sufficient is Allāh as Accountant.**
 
 <hr>
+
+## Throw the baby out with the bathwater
+
+### Meaning
+To discard, especially inadvertently, something valuable while in the process of removing or rejecting something unwanted.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/19
+
+- **O you who have believed, it is not lawful for you to inherit women by compulsion. And do not make difficulties for them in order to take [back] part of what you gave them2 unless they commit a clear immorality [i.e., adultery]. And live with them in kindness. For if you dislike them - perhaps you dislike a thing and Allāh makes therein much good.**
+
+<hr>
+
+## Do unto others as you would have them do unto you
+
+### Meaning
+One should treat others as one would like others to treat oneself.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/24/22
+
+- **And let not those of virtue among you and wealth swear not to give [aid] to their relatives and the needy and the emigrants for the cause of Allāh, and let them pardon and overlook. Would you not like that Allāh should forgive you? And Allāh is Forgiving and Merciful.**
+
+https://quran.com/4/9
+
+- **And let those [executors and guardians] fear [injustice] as if they [themselves] had left weak offspring behind and feared for them. So let them fear Allāh and speak words of appropriate justice.**
+
+<hr>
+
+
+## Enough is as good as a feast
+
+### Meaning
+Just the right amount is as good as more than enough: there is no value in excess.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/7/31
+
+- **O children of Adam, take your adornment [i.e., wear your clothing] at every masjid, and eat and drink, but be not excessive. Indeed, He likes not those who commit excess.**
+
+https://quran.com/6/141
+
+- **And He it is who causes gardens to grow, [both] trellised and untrellised, and palm trees and crops of different [kinds of] food and olives and pomegranates, similar and dissimilar. Eat of [each of] its fruit when it yields and give its due [zakāh] on the day of its harvest. And be not excessive. Indeed, He does not like those who commit excess.**
+
+https://quran.com/2/219
+
+- **They ask you about wine1 and gambling. Say, "In them is great sin and [yet, some] benefit for people. But their sin is greater than their benefit." And they ask you what they should spend. Say, "The excess [beyond needs]." Thus Allāh makes clear to you the verses [of revelation] that you might give thought**
+
+<hr>
+
+
