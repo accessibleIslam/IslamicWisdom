@@ -456,3 +456,18 @@ https://quran.com/2/219
 <hr>
 
 
+
+## Fish and company stink after three days
+
+### Meaning
+A guest who overstays will cease to be welcome.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/33/53
+
+- **O you who have believed, do not enter the houses of the Prophet except when you are permitted for a meal, without awaiting its readiness. But when you are invited, then enter; and when you have eaten, disperse without seeking to remain for conversation. Indeed, that [behavior] was troubling the Prophet, and he is shy of [dismissing] you. But Allāh is not shy of the truth.**
+
+<hr>
+
+
