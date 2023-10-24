@@ -455,8 +455,6 @@ https://quran.com/2/219
 
 <hr>
 
-
-
 ## Fish and company stink after three days
 
 ### Meaning
@@ -467,6 +465,44 @@ A guest who overstays will cease to be welcome.
 https://quran.com/33/53
 
 - **O you who have believed, do not enter the houses of the Prophet except when you are permitted for a meal, without awaiting its readiness. But when you are invited, then enter; and when you have eaten, disperse without seeking to remain for conversation. Indeed, that [behavior] was troubling the Prophet, and he is shy of [dismissing] you. But Allāh is not shy of the truth.**
+
+<hr>
+
+## Handsome is as handsome does
+
+### Meaning
+A person's good actions, rather than outward appeal, define his or her handsomeness in the eyes of others.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/34/37
+
+- **And it is not your wealth or your children that bring you nearer to Us in position, but it is [by being] one who has believed and done righteousness. For them there will be the double reward for what they did, and they will be in the upper chambers [of Paradise], safe [and secure].**
+
+<hr>
+
+## He who laughs last laughs best
+
+### Meaning
+Success is enjoyed more after having previously endured ridicule.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/11/38
+
+- **And he constructed the ship, and whenever an assembly of the eminent of his people passed by him, they ridiculed him. He said, "If you ridicule us, then we will ridicule you just as you ridicule.**
+- **And you are going to know who will get a punishment that will disgrace him [on earth] and upon whom will descend an enduring punishment [in the Hereafter]."**
+
+https://quran.com/83/29
+
+- **Indeed, those who committed crimes used to laugh at those who believed.**
+- **And when they passed by them, they would exchange derisive glances.**
+- **And when they returned to their people, they would return jesting.**
+- **And when they saw them, they would say, "Indeed, those are truly lost."**
+- **But they had not been sent as guardians over them.**
+- **So Today those who believed are laughing at the disbelievers,**
+- **On adorned couches, observing.**
+- **Have the disbelievers [not] been rewarded [this Day] for what they used to do?**
 
 <hr>
 
