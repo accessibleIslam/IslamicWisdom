@@ -506,4 +506,41 @@ https://quran.com/83/29
 
 <hr>
 
+## If wishes were horses, beggars would ride
+
+### Meaning
+If wishing could make things happen, then even the most destitute people would have everything they wanted.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/123
+
+- **It [i.e., Paradise] is not [obtained] by your wishful thinking nor by that of the People of the Scripture. Whoever does a wrong will be recompensed for it, and he will not find besides Allāh a protector or a helper.**
+
+<hr>
+
+## If you lie down with dogs, you get up with fleas
+
+### Meaning
+Spending time with undesirable people will cause one to take on their undesirable traits.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/9/23
+
+- **O you who have believed, do not take your fathers or your brothers as allies if they have preferred disbelief over belief. And whoever does so among you - then it is those who are the wrongdoers.**
+
+https://quran.com/5/57
+
+- **O you who have believed, take not those who have taken your religion in ridicule and amusement among the ones who were given the Scripture before you nor the disbelievers as allies. And fear Allāh, if you should [truly] be believers.**
+
+https://quran.com/6/68
+
+- **And when you see those who engage in [offensive] discourse concerning Our verses, then turn away from them until they enter into another conversation. And if Satan should cause you to forget, then do not remain after the reminder with the wrongdoing people.**
+- **And those who fear Allāh are not held accountable for them [i.e., the disbelievers] at all, but [only for] a reminder - that perhaps they will fear Him.**
+- **And leave those who take their religion as amusement and diversion and whom the worldly life has deluded. But remind with it [i.e., the Qur’ān], lest a soul be given up to destruction for what it earned; it will have other than Allāh no protector and no intercessor. And if it should offer every compensation, it would not be taken from it [i.e., that soul]. Those are the ones who are given to destruction for what they have earned. For them will be a drink of scalding water and a painful punishment because they used to disbelieve.
+**
+  
+<hr>
+
 
