@@ -526,6 +526,11 @@ Spending time with undesirable people will cause one to take on their undesirabl
 
 ### Relevant verses from the Qur'an
 
+https://quran.com/4/140
+
+- **And it has already come down to you in the Book [i.e., the Qur’ān] that when you hear the verses of Allāh [recited], they are denied [by them] and ridiculed; so do not sit with them until they enter into another conversation. Indeed, you would then be like them. Indeed, Allāh will gather the hypocrites and disbelievers in Hell all together**
+
+
 https://quran.com/9/23
 
 - **O you who have believed, do not take your fathers or your brothers as allies if they have preferred disbelief over belief. And whoever does so among you - then it is those who are the wrongdoers.**
@@ -541,6 +546,19 @@ https://quran.com/6/68
 - **And leave those who take their religion as amusement and diversion and whom the worldly life has deluded. But remind with it [i.e., the Qur’ān], lest a soul be given up to destruction for what it earned; it will have other than Allāh no protector and no intercessor. And if it should offer every compensation, it would not be taken from it [i.e., that soul]. Those are the ones who are given to destruction for what they have earned. For them will be a drink of scalding water and a painful punishment because they used to disbelieve.
 **
   
+<hr>
+
+## There's no point crying over spilt milk
+
+### Meaning
+You shouldn't be upset over something that can't be undone.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/3/153
+
+- **[Remember] when you [fled and] climbed [the mountain] without looking aside at anyone while the Messenger was calling you from behind. So Allāh repaid you with distress upon distress so you would not grieve for that which had escaped you [of victory and spoils of war] or [for] that which had befallen you [of injury and death]. And Allāh is [fully] Aware of what you do.**
+
 <hr>
 
 
