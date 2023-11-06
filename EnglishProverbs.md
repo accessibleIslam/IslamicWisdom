@@ -580,7 +580,7 @@ https://quran.com/8/60
 ## Kill the chicken to scare the monkey
 
 ### Meaning
-Always be prepared to take action yourself if necessary, but put your trust in God
+To punish an individual as an example to others
 
 ### Relevant verses from the Qur'an
 
