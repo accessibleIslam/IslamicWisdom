@@ -562,3 +562,54 @@ https://quran.com/3/153
 <hr>
 
 
+## Trust in God and keep your powder dry
+
+### Meaning
+Always be prepared to take action yourself if necessary, but put your trust in God
+
+### Relevant verses from the Qur'an
+
+https://quran.com/8/60
+
+- **And prepare against them whatever you are able of power and of steeds of war by which you may terrify the enemy of Allāh and your enemy and others besides them whom you do not know [but] whom Allāh knows. And whatever you spend in the cause of Allāh will be fully repaid to you, and you will not be wronged.**
+- **And if they incline to peace, then incline to it [also] and rely upon Allāh. Indeed, it is He who is the Hearing, the Knowing.**
+
+<hr>
+
+
+## Kill the chicken to scare the monkey
+
+### Meaning
+Always be prepared to take action yourself if necessary, but put your trust in God
+
+### Relevant verses from the Qur'an
+
+https://quran.com/8/57
+
+- **So if you, [O Muḥammad], gain dominance over them in war, disperse by [means of] them those behind them that perhaps they will be reminded. [i.e., kill them and make an example of them to discourage those who follow them.]**
+
+<hr>
+
+
+## Kill the goose that lays the golden eggs
+
+### Meaning
+To seek short-term gain at the sacrifice of long-term profit.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/9/38
+
+- **O you who have believed, what is [the matter] with you that, when you are told to go forth in the cause of Allāh, you adhere heavily to the earth? Are you satisfied with the life of this world rather than the Hereafter? But what is the enjoyment of worldly life compared to the Hereafter except a [very] little.**
+
+https://quran.com/28/60
+
+- **And whatever thing you [people] have been given - it is [only for] the enjoyment of worldly life and its adornment. And what is with Allāh is better and more lasting; so will you not use reason?**
+
+https://quran.com/87/16
+
+- **But you prefer the worldly life,**
+- **While the Hereafter is better and more enduring.**
+
+
+<hr>
