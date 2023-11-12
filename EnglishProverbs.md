@@ -530,7 +530,6 @@ https://quran.com/4/140
 
 - **And it has already come down to you in the Book [i.e., the Qur’ān] that when you hear the verses of Allāh [recited], they are denied [by them] and ridiculed; so do not sit with them until they enter into another conversation. Indeed, you would then be like them. Indeed, Allāh will gather the hypocrites and disbelievers in Hell all together**
 
-
 https://quran.com/9/23
 
 - **O you who have believed, do not take your fathers or your brothers as allies if they have preferred disbelief over belief. And whoever does so among you - then it is those who are the wrongdoers.**
@@ -561,7 +560,6 @@ https://quran.com/3/153
 
 <hr>
 
-
 ## Trust in God and keep your powder dry
 
 ### Meaning
@@ -576,7 +574,6 @@ https://quran.com/8/60
 
 <hr>
 
-
 ## Kill the chicken to scare the monkey
 
 ### Meaning
@@ -589,7 +586,6 @@ https://quran.com/8/57
 - **So if you, [O Muḥammad], gain dominance over them in war, disperse by [means of] them those behind them that perhaps they will be reminded. [i.e., kill them and make an example of them to discourage those who follow them.]**
 
 <hr>
-
 
 ## Kill the goose that lays the golden eggs
 
@@ -611,5 +607,30 @@ https://quran.com/87/16
 - **But you prefer the worldly life,**
 - **While the Hereafter is better and more enduring.**
 
+<hr>
+
+## Don't judge a book by its cover
+
+### Meaning
+One should not judge the worth or value of something or someone by their outward appearance alone.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/63/4
+
+- **And when you see them [the hypocrites], their forms please you, and if they speak, you listen to their speech. [They are] as if they were pieces of wood propped up - they think that every shout is against them. They are the enemy, so beware of them. May Allāh destroy them; how are they deluded?**
+
+<hr>
+
+## Never put off until tomorrow what you can do today
+
+### Meaning
+Do not procrastinate whatever that can be done today until tomorrow.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/63/10
+
+- **And spend [in the way of Allāh] from what We have provided you before death approaches one of you and he says, "My Lord, if only You would delay me for a brief term so I would give charity and be of the righteous."**
 
 <hr>
