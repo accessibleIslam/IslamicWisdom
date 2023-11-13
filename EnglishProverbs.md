@@ -634,3 +634,18 @@ https://quran.com/63/10
 - **And spend [in the way of Allāh] from what We have provided you before death approaches one of you and he says, "My Lord, if only You would delay me for a brief term so I would give charity and be of the righteous."**
 
 <hr>
+
+## Never say die
+
+### Meaning
+Do not despair; the outlook may be better than it seems, so don't give up
+
+### Relevant verses from the Qur'an
+
+https://quran.com/3/139
+
+- **So do not weaken and do not grieve, and you will be superior if you are [true] believers.**
+- **If a wound should touch you - there has already touched the [opposing] people a wound similar to it. And these days [of varying conditions] We alternate among the people so that Allāh may make evident those who believe and [may] take to Himself from among you martyrs - and Allāh does not like the wrongdoers -**
+- **And that Allāh may purify the believers [through trials] and destroy the disbelievers.**
+
+<hr>
