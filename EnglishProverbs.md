@@ -649,3 +649,20 @@ https://quran.com/3/139
 - **And that Allāh may purify the believers [through trials] and destroy the disbelievers.**
 
 <hr>
+
+## No man can server two masters
+
+### Meaning
+No man can take orders from two superiors or two conflicting parties.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/39/29
+
+- **Allāh presents an example: a man [i.e., slave] owned by quarreling partners and another belonging exclusively to one man - are they equal in comparison? Praise be to Allāh! But most of them do not know.**
+
+https://quran.com/12/39
+
+- **O [my] two companions of prison, are separate lords better or Allāh, the One, the Prevailing?**
+
+<hr>
