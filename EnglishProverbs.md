@@ -666,3 +666,21 @@ https://quran.com/12/39
 - **O [my] two companions of prison, are separate lords better or Allāh, the One, the Prevailing?**
 
 <hr>
+
+
+## Out of sight, out of mind
+
+### Meaning
+When something is not nearby, it is forgotten about.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/91
+
+- **You will find others who wish to obtain security from you and [to] obtain security from their people. Every time they are returned to [the influence of] disbelief, they fall back into it. So if they do not withdraw from you or offer you peace or restrain their hands, then seize them and kill them wherever you overtake them. And those - We have made for you against them a clear authorization.**
+
+https://quran.com/44/15
+
+- **Indeed, We will remove ˹that˺ torment for a while, and you ˹Meccans˺ will return ˹to disbelief˺.**
+
+<hr>
