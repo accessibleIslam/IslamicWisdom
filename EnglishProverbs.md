@@ -683,4 +683,33 @@ https://quran.com/44/15
 
 - **Indeed, We will remove ˹that˺ torment for a while, and you ˹Meccans˺ will return ˹to disbelief˺.**
 
+https://quran.com/6/27
+
+- **If you could but see when they are made to stand before the Fire and will say, "Oh, would that we could be returned [to life on earth] and not deny the signs of our Lord and be among the believers."**
+- **But what they concealed before has [now] appeared to them. And even if they were returned, they would return to that which they were forbidden; and indeed, they are liars.**
+
 <hr>
+
+
+## Out of sight, out of mind
+
+### Meaning
+When something is not nearby, it is forgotten about.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/91
+
+- **You will find others who wish to obtain security from you and [to] obtain security from their people. Every time they are returned to [the influence of] disbelief, they fall back into it. So if they do not withdraw from you or offer you peace or restrain their hands, then seize them and kill them wherever you overtake them. And those - We have made for you against them a clear authorization.**
+
+https://quran.com/44/15
+
+- **Indeed, We will remove ˹that˺ torment for a while, and you ˹Meccans˺ will return ˹to disbelief˺.**
+
+https://quran.com/6/27
+
+- **If you could but see when they are made to stand before the Fire and will say, "Oh, would that we could be returned [to life on earth] and not deny the signs of our Lord and be among the believers."**
+- **But what they concealed before has [now] appeared to them. And even if they were returned, they would return to that which they were forbidden; and indeed, they are liars.**
+
+<hr>
+
