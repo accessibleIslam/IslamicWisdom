@@ -690,26 +690,16 @@ https://quran.com/6/27
 
 <hr>
 
-
-## Out of sight, out of mind
+## People who live in glass houses should not throw stones
 
 ### Meaning
-When something is not nearby, it is forgotten about.
+Don't criticize others for a flaw when you yourself possess many flaws. It is a way of reminding someone not to act hypocritically.
 
 ### Relevant verses from the Qur'an
 
-https://quran.com/4/91
+https://quran.com/2/217
 
-- **You will find others who wish to obtain security from you and [to] obtain security from their people. Every time they are returned to [the influence of] disbelief, they fall back into it. So if they do not withdraw from you or offer you peace or restrain their hands, then seize them and kill them wherever you overtake them. And those - We have made for you against them a clear authorization.**
-
-https://quran.com/44/15
-
-- **Indeed, We will remove ˹that˺ torment for a while, and you ˹Meccans˺ will return ˹to disbelief˺.**
-
-https://quran.com/6/27
-
-- **If you could but see when they are made to stand before the Fire and will say, "Oh, would that we could be returned [to life on earth] and not deny the signs of our Lord and be among the believers."**
-- **But what they concealed before has [now] appeared to them. And even if they were returned, they would return to that which they were forbidden; and indeed, they are liars.**
+- **YThey ask you about the sacred month1 - about fighting therein. Say, "Fighting therein is great [sin], but averting [people] from the way of Allāh and disbelief in Him and [preventing access to] al-Masjid al-Ḥarām and the expulsion of its people therefrom are greater [evil] in the sight of Allāh. And fitnah2 is greater than killing." And they will continue to fight you until they turn you back from your religion if they are able. And whoever of you reverts from his religion [to disbelief] and dies while he is a disbeliever - for those, their deeds have become worthless in this world and the Hereafter, and those are the companions of the Fire; they will abide therein eternally.**
 
 <hr>
 
