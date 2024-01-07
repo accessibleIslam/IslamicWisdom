@@ -401,6 +401,20 @@ https://quran.com/4/5
 - **And do not give the weak-minded your property, which Allāh has made a means of sustenance for you, but provide for them with it and clothe them and speak to them words of appropriate kindness.**
 - **And test the orphans [in their abilities] until they reach marriageable age. Then if you perceive in them sound judgement, release their property to them. And do not consume it excessively and quickly, [anticipating] that they will grow up. And whoever, [when acting as guardian], is self-sufficient should refrain [from taking a fee]; and whoever is poor - let him take according to what is acceptable. Then when you release their property to them, bring witnesses upon them. And sufficient is Allāh as Accountant.**
 
+https://quran.com/80/5
+- As for he who thinks himself without need
+- To him you give attention.
+- And not upon you [is any blame] if he will not be purified.
+- But as for he who came to you striving [for knowledge]
+- While he fears [Allāh],
+- From him you are distracted.
+- No! Indeed, they [i.e., these verses] are a reminder;
+- So whoever wills may remember it.<sup foot_note=197707>1</sup>
+- [It is recorded] in honored sheets,
+- Exalted and purified,
+- [Carried] by the hands of messenger-angels,
+- Noble and dutiful.
+
 <hr>
 
 ## Throw the baby out with the bathwater
@@ -699,7 +713,51 @@ Don't criticize others for a flaw when you yourself possess many flaws. It is a 
 
 https://quran.com/2/217
 
-- **YThey ask you about the sacred month1 - about fighting therein. Say, "Fighting therein is great [sin], but averting [people] from the way of Allāh and disbelief in Him and [preventing access to] al-Masjid al-Ḥarām and the expulsion of its people therefrom are greater [evil] in the sight of Allāh. And fitnah2 is greater than killing." And they will continue to fight you until they turn you back from your religion if they are able. And whoever of you reverts from his religion [to disbelief] and dies while he is a disbeliever - for those, their deeds have become worthless in this world and the Hereafter, and those are the companions of the Fire; they will abide therein eternally.**
+- **They ask you about the sacred month - about fighting therein. Say, "Fighting therein is great [sin], but averting [people] from the way of Allāh and disbelief in Him and [preventing access to] al-Masjid al-Ḥarām and the expulsion of its people therefrom are greater [evil] in the sight of Allāh. And fitnah2 is greater than killing." And they will continue to fight you until they turn you back from your religion if they are able. And whoever of you reverts from his religion [to disbelief] and dies while he is a disbeliever - for those, their deeds have become worthless in this world and the Hereafter, and those are the companions of the Fire; they will abide therein eternally.**
+
+<hr>
+
+## Rome wasn't built in a day
+
+### Meaning
+Great things take time to build.
+
+### Relevant verses from the Qur'an
+
+?
+
+- 
+
+<hr>
+
+## Seeing is believing
+
+### Meaning
+If you see something yourself, you will believe it to exist or be true, despite the fact that it is extremely unusual or unexpected:
+
+### Relevant verses from the Qur'an
+
+https://quran.com/5/112
+
+- [And remember] when the disciples said, "O Jesus, Son of Mary, can your Lord send down to us a table [spread with food] from the heaven?" [Jesus] said, "Fear Allāh, if you should be believers."
+- They said, "We wish to eat from it and let our hearts be reassured and know that you have been truthful to us and be among its witnesses."
+- Said Jesus, the son of Mary, "O Allāh, our Lord, send down to us a table [spread with food] from the heaven to be for us a festival for the first of us and the last of us and a sign from You. And provide for us, and You are the best of providers."
+- Allāh said, "Indeed, I will send it down to you, but whoever disbelieves afterwards from among you - then indeed will I punish him with a punishment by which I have not punished anyone among the worlds."
+
+https://quran.com/52/11
+
+- Then woe, that Day, to the deniers,
+- Who are in [empty] discourse amusing themselves.
+- The Day they are thrust toward the fire of Hell with a [violent] thrust, [its angels will say],
+- "This is the Fire which you used to deny.
+- Then is this magic, or do you not see?
+- [Enter to] burn therein; then be patient or impatient - it is all the same for you. You are only being recompensed [for] what you used to do."
+
+
+https://quran.com/32/10
+- And they say, "When we are lost [i.e., disintegrated] within the earth, will we indeed be [recreated] in a new creation?" Rather, they are, in the meeting with their Lord, disbelievers.
+- Say, "The angel of death who has been entrusted with you will take you. Then to your Lord you will be returned."
+- If you could but see when the criminals are hanging their heads before their Lord, [saying], "Our Lord, we have seen and heard, so return us [to the world]; we will work righteousness. Indeed, we are [now] certain."
 
 <hr>
 
