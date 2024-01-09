@@ -733,7 +733,7 @@ Great things take time to build.
 ## Seeing is believing
 
 ### Meaning
-If you see something yourself, you will believe it to exist or be true, despite the fact that it is extremely unusual or unexpected:
+If you see something yourself, you will believe it to exist or be true, despite the fact that it is extremely unusual or unexpected.
 
 ### Relevant verses from the Qur'an
 
@@ -758,6 +758,27 @@ https://quran.com/32/10
 - And they say, "When we are lost [i.e., disintegrated] within the earth, will we indeed be [recreated] in a new creation?" Rather, they are, in the meeting with their Lord, disbelievers.
 - Say, "The angel of death who has been entrusted with you will take you. Then to your Lord you will be returned."
 - If you could but see when the criminals are hanging their heads before their Lord, [saying], "Our Lord, we have seen and heard, so return us [to the world]; we will work righteousness. Indeed, we are [now] certain."
+
+<hr>
+
+## Shrouds have no pockets
+
+### Meaning
+Worldly wealth cannot be kept and used after death
+
+### Relevant verses from the Qur'an
+
+https://quran.com/92/11
+
+- And what will his wealth avail him when he falls?
+
+https://quran.com/2/48
+
+- And fear a Day when no soul will suffice for another soul at all, nor will intercession be accepted from it, nor will compensation be taken from it, nor will they be aided.
+
+https://quran.com/2/254
+
+- O you who have believed, spend from that which We have provided for you before there comes a Day in which there is no exchange [i.e., ransom] and no friendship and no intercession. And the disbelievers - they are the wrongdoers.
 
 <hr>
 
