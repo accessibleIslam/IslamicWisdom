@@ -782,3 +782,25 @@ https://quran.com/2/254
 
 <hr>
 
+## Softly, softly, catchee monkey
+
+### Meaning
+Proceed cautiously or gently to achieve an objective.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/3/159
+
+- So by mercy from Allāh, [O Muḥammad], you were lenient with them. And if you had been rude [in speech] and harsh in heart, they would have disbanded from about you. So pardon them and ask forgiveness for them and consult them in the matter. And when you have decided, then rely upon Allāh. Indeed, Allāh loves those who rely [upon Him].
+
+https://quran.com/20/43
+
+- Go, both of you, to Pharaoh. Indeed, he has transgressed.
+- And speak to him with gentle speech that perhaps he may be reminded or fear [Allāh]."
+
+https://quran.com/18/19
+
+- And similarly, We awakened them that they might question one another. Said a speaker from among them, "How long have you remained [here]?" They said, "We have remained a day or part of a day." They said, "Your Lord is most knowing of how long you remained. So send one of you with this silver coin of yours to the city and let him look to which is the best of food and bring you provision from it and let him be cautious. And let no one be aware of you.
+
+<hr>
+
