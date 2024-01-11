@@ -803,4 +803,16 @@ https://quran.com/18/19
 - And similarly, We awakened them that they might question one another. Said a speaker from among them, "How long have you remained [here]?" They said, "We have remained a day or part of a day." They said, "Your Lord is most knowing of how long you remained. So send one of you with this silver coin of yours to the city and let him look to which is the best of food and bring you provision from it and let him be cautious. And let no one be aware of you.
 
 <hr>
+## Talk is Cheap
+
+### Meaning
+It is easy to make boastful or unrealistic statements which are not supported by actions or evidence.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/24/53
+
+- And they swear by Allāh their strongest oaths that if you ordered them, they would go forth [in Allāh's cause]. Say, "Do not swear. [Such] obedience is known. Indeed, Allāh is [fully] Aware of that which you do."
+
+<hr>
 
