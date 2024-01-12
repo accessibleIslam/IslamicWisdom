@@ -803,6 +803,7 @@ https://quran.com/18/19
 - And similarly, We awakened them that they might question one another. Said a speaker from among them, "How long have you remained [here]?" They said, "We have remained a day or part of a day." They said, "Your Lord is most knowing of how long you remained. So send one of you with this silver coin of yours to the city and let him look to which is the best of food and bring you provision from it and let him be cautious. And let no one be aware of you.
 
 <hr>
+
 ## Talk is Cheap
 
 ### Meaning
@@ -813,6 +814,23 @@ It is easy to make boastful or unrealistic statements which are not supported by
 https://quran.com/24/53
 
 - And they swear by Allāh their strongest oaths that if you ordered them, they would go forth [in Allāh's cause]. Say, "Do not swear. [Such] obedience is known. Indeed, Allāh is [fully] Aware of that which you do."
+
+<hr>
+
+## Tell the truth and shame the devil
+
+### Meaning
+We must always tell the truth, even when it would be to our benefit or advantage to tell a lie.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/135
+
+- O you who have believed, be persistently standing firm in justice, witnesses for Allāh, even if it be against yourselves or parents and relatives. Whether one is rich or poor, Allāh is more worthy of both. So follow not [personal] inclination, lest you not be just. And if you distort [your testimony] or refuse [to give it], then indeed Allāh is ever, of what you do, Aware.
+
+https://quran.com/6/152
+
+- And do not approach the orphan's property except in a way that is best [i.e., intending improvement] until he reaches maturity. And give full measure and weight in justice. We do not charge any soul except [with that within] its capacity. And when you speak [i.e., testify], be just, even if [it concerns] a near relative. And the covenant of Allāh fulfill. This has He instructed you that you may remember.
 
 <hr>
 
