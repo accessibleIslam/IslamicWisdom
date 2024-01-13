@@ -834,3 +834,17 @@ https://quran.com/6/152
 
 <hr>
 
+## The apple never falls far from the tree
+
+### Meaning
+Children tend to inherit the characteristics of their parents.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/71/26
+
+- And Noah said, "My Lord, do not leave upon the earth from among the disbelievers an inhabitant.
+- Indeed, if You leave them, they will mislead Your servants and not beget except [every] wicked one and [confirmed] disbeliever.
+
+<hr>
+
