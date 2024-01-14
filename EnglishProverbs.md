@@ -848,3 +848,18 @@ https://quran.com/71/26
 
 <hr>
 
+
+## The road to hell is paved with good intentions
+
+### Meaning
+A common meaning of the phrase is that wrongdoings or evil actions are often undertaken with good intentions; or that good intentions, when acted upon, may have unintended consequences.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/12/8
+
+- When they said, "Joseph and his brother are more beloved to our father than we, while we are a clan. Indeed, our father is in clear error.
+- Kill Joseph or cast him out to [another] land; the countenance [i.e., attention] of your father will [then] be only for you, and you will be after that a righteous people."
+
+<hr>
+
