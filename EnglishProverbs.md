@@ -863,3 +863,23 @@ https://quran.com/12/8
 
 <hr>
 
+## Turn your face toward the sun and the shadows fall behind you
+
+### Meaning
+Always try to look at the bright or positive side, and eventually, you will find the negatives falling behind you.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/93/1
+
+- By the morning brightness
+- And [by] the night when it covers with darkness,
+- Your Lord has not taken leave of you, [O Muḥammad], nor has He detested [you].
+- And the Hereafter is better for you than the first [life].
+- And your Lord is going to give you, and you will be satisfied.
+- Did He not find you an orphan and give [you] refuge?
+- And He found you lost and guided [you],
+- And He found you poor and made [you] self-sufficient.
+
+<hr>
+
