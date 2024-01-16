@@ -883,3 +883,20 @@ https://quran.com/93/1
 
 <hr>
 
+## Uneasy lies the head that wears a crown
+
+### Meaning
+A person who has great responsibilities, such as a king, is constantly worried and therefore doesn't sleep soundly.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/19/2
+
+- [This is] a mention of the mercy of your Lord to His servant Zechariah
+- When he called to his Lord a private call [i.e., supplication].
+- He said, "My Lord, indeed my bones have weakened, and my head has filled with white, and never have I been in my supplication to You, my Lord, unhappy [i.e., disappointed].
+- And indeed, I fear the successors after me, and my wife has been barren, so give me from Yourself an heir
+- Who will inherit me1 and inherit from the family of Jacob. And make him, my Lord, pleasing [to You]."
+
+<hr>
+
