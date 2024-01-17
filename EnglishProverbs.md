@@ -272,7 +272,7 @@ https://quran.com/59/11
 
 <hr>
 
-## A House Divided Against Itself Cannot Stand
+## A House Divided Against Itself Cannot Stand / United we stand, divided we fall / Unity is strength
 
 ### Meaning
 Success comes from sticking together and to do anything else is to invoke disaster.
@@ -389,10 +389,10 @@ https://quran.com/56/82
 
 <hr>
 
-## Cast pearls before swine
+## Do not cast pearls before swine
 
 ### Meaning
-To give things of value to those who will not understand or appreciate them.
+We should not give things of value to those who will not understand or appreciate them.
 
 ### Relevant verses from the Qur'an
 
@@ -897,6 +897,22 @@ https://quran.com/19/2
 - He said, "My Lord, indeed my bones have weakened, and my head has filled with white, and never have I been in my supplication to You, my Lord, unhappy [i.e., disappointed].
 - And indeed, I fear the successors after me, and my wife has been barren, so give me from Yourself an heir
 - Who will inherit me1 and inherit from the family of Jacob. And make him, my Lord, pleasing [to You]."
+
+<hr>
+
+
+## Walk softly but carry a big stick 
+
+### Meaning
+To be gentle and kind but allow others to know that we will use force if necessary.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/18/86
+
+- Until, when he reached the setting of the sun [i.e., the west], he found it [as if] setting in a body of dark water, and he found near it a people. We [i.e., Allāh] said, "O Dhul-Qarnayn, either you punish [them] or else adopt among them [a way of] goodness."
+- He said, "As for one who wrongs, we will punish him. Then he will be returned to his Lord, and He will punish him with a terrible punishment [i.e., Hellfire].
+- But as for one who believes and does righteousness, he will have a reward of the best [i.e., Paradise], and we [i.e., Dhul-Qarnayn] will speak to him from our command with ease."
 
 <hr>
 
