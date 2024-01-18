@@ -916,3 +916,22 @@ https://quran.com/18/86
 
 <hr>
 
+
+## Walnuts and pears you plant for your heirs
+
+### Meaning
+Think long-term and look after future generations.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/19/5
+
+- And indeed, I fear the successors after me, and my wife has been barren, so give me from Yourself an heir
+- Who will inherit me and inherit from the family of Jacob. And make him, my Lord, pleasing [to You]."
+
+https://quran.com/3/36
+
+- But when she delivered her, she said, "My Lord, I have delivered a female." And Allāh was most knowing of what she delivered, and the male is not like the female. "And I have named her Mary, and I seek refuge for her in You and [for] her descendants from Satan, the expelled [from the mercy of Allāh]."
+
+<hr>
+
