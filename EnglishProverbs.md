@@ -935,3 +935,24 @@ https://quran.com/3/36
 
 <hr>
 
+## What goes up must come down
+
+### Meaning
+All trends will end; a rise (in a person's political or social influence, etc.) will be followed by a fall.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/17/58
+
+- And there is no city but that We will destroy it before the Day of Resurrection or punish it with a severe punishment. That has ever been in the Register inscribed.
+
+https://quran.com/10/24
+
+- The example of [this] worldly life is but like rain which We have sent down from the sky that the plants of the earth absorb - [those] from which men and livestock eat - until, when the earth has taken on its adornment and is beautified and its people suppose that they have capability over it, there comes to it Our command by night or by day, and We make it as a harvest, as if it had not flourished yesterday. Thus do We explain in detail the signs for a people who give thought.
+
+https://quran.com/17/16
+
+- And when We intend to destroy a city, We command its affluent but they defiantly disobey therein; so the word [i.e., deserved decree] comes into effect upon it, and We destroy it with [complete] destruction.
+
+  
+<hr>
