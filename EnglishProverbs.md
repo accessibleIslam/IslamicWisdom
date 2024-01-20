@@ -954,5 +954,25 @@ https://quran.com/17/16
 
 - And when We intend to destroy a city, We command its affluent but they defiantly disobey therein; so the word [i.e., deserved decree] comes into effect upon it, and We destroy it with [complete] destruction.
 
-  
+https://quran.com/40/29
+
+- O my people, sovereignty is yours today, [your being] dominant in the land. But who would protect us from the punishment of Allāh if it came to us?" Pharaoh said, "I do not show you except what I see, and I do not guide you except to the way of right conduct."
+
+<hr>
+
+## What's sauce for the goose is sauce for the gander
+
+### Meaning
+One person or situation should be treated the same way that another person or situation is treated.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/3/195
+
+- And their Lord responded to them, "Never will I allow to be lost the work of [any] worker among you, whether male or female; you are of one another. So those who emigrated or were evicted from their homes or were harmed in My cause or fought or were killed - I will surely remove from them their misdeeds, and I will surely admit them to gardens beneath which rivers flow as reward from Allāh, and Allāh has with Him the best reward."
+
+https://quran.com/4/129
+
+- And you will never be able to be equal [in feeling] between wives, even if you should strive [to do so]. So do not incline completely [toward one] and leave another hanging. And if you amend [your affairs] and fear Allāh - then indeed, Allāh is ever Forgiving and Merciful.
+
 <hr>
