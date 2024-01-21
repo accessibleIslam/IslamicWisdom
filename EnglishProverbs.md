@@ -976,3 +976,20 @@ https://quran.com/4/129
 - And you will never be able to be equal [in feeling] between wives, even if you should strive [to do so]. So do not incline completely [toward one] and leave another hanging. And if you amend [your affairs] and fear Allāh - then indeed, Allāh is ever Forgiving and Merciful.
 
 <hr>
+
+## You can have too much of a good thing
+
+### Meaning
+It is detrimental to have an excessive, unhelpful, or harmful amount of something that is otherwise enjoyable or beneficial.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/7/31
+
+- O children of Adam, take your adornment [i.e., wear your clothing] at every masjid, and eat and drink, but be not excessive. Indeed, He likes not those who commit excess.
+
+https://quran.com/6/141
+
+- And He it is who causes gardens to grow, [both] trellised and untrellised, and palm trees and crops of different [kinds of] food and olives and pomegranates, similar and dissimilar. Eat of [each of] its fruit when it yields and give its due [zakāh] on the day of its harvest. And be not excessive. Indeed, He does not like those who commit excess.
+
+<hr>
