@@ -993,3 +993,31 @@ https://quran.com/6/141
 - And He it is who causes gardens to grow, [both] trellised and untrellised, and palm trees and crops of different [kinds of] food and olives and pomegranates, similar and dissimilar. Eat of [each of] its fruit when it yields and give its due [zakāh] on the day of its harvest. And be not excessive. Indeed, He does not like those who commit excess.
 
 <hr>
+
+## You can lead a horse to water, but you can't make it drink
+
+### Meaning
+You can show someone how to do something, but you can't make them do it.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/11/25
+
+- And We had certainly sent Noah to his people, [saying], "Indeed, I am to you a clear warner
+- That you not worship except Allāh. Indeed, I fear for you the punishment of a painful day.
+- "So the eminent among those who disbelieved from his people said, "We do not see you but as a man like ourselves, and we do not see you followed except by those who are the lowest of us [and] at first suggestion. And we do not see in you over us any merit; rather, we think you are liars."
+- He said, "O my people, have you considered: if I should be upon clear evidence from my Lord while He has given me mercy from Himself but it has been made unapparent to you, should we force it upon you while you are averse to it?
+
+https://quran.com/10/99
+
+- And had your Lord willed, those on earth would have believed - all of them entirely. Then, [O Muḥammad], would you compel the people in order that they become believers?
+- And it is not for a soul [i.e., anyone] to believe except by permission of Allāh, and He will place defilement upon those who will not use reason.
+
+https://quran.com/10/42
+
+- And among them are those who listen to you. But can you cause the deaf to hear [i.e., benefit from this hearing], although they will not use reason?
+- And among them are those who look at you. But can you guide the blind although they will not [attempt to] see?
+
+
+
+<hr>
