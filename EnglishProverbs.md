@@ -1019,5 +1019,17 @@ https://quran.com/10/42
 - And among them are those who look at you. But can you guide the blind although they will not [attempt to] see?
 
 
+<hr>
+
+## You never can tell
+
+### Meaning
+The future is always uncertain and it is never possible to know exactly what will happen
+
+### Relevant verses from the Qur'an
+
+https://quran.com/31/34
+
+- Indeed, Allāh [alone] has knowledge of the Hour and sends down the rain and knows what is in the wombs. And no soul perceives what it will earn tomorrow, and no soul perceives in what land it will die. Indeed, Allāh is Knowing and Aware.
 
 <hr>
