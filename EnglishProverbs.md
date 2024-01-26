@@ -1022,7 +1022,6 @@ https://quran.com/10/42
 - And among them are those who listen to you. But can you cause the deaf to hear [i.e., benefit from this hearing], although they will not use reason?
 - And among them are those who look at you. But can you guide the blind although they will not [attempt to] see?
 
-
 <hr>
 
 ## You never can tell
@@ -1035,5 +1034,18 @@ The future is always uncertain and it is never possible to know exactly what wil
 https://quran.com/31/34
 
 - Indeed, Allāh [alone] has knowledge of the Hour and sends down the rain and knows what is in the wombs. And no soul perceives what it will earn tomorrow, and no soul perceives in what land it will die. Indeed, Allāh is Knowing and Aware.
+
+<hr>
+
+## You cannot run with the hare and hunt with the hounds
+
+### Meaning
+Deceitful behaviour of one who fights on one side and gives secret help to the other side. Terms for these traitors to the cause are ‘double-dealers’ and ‘double-crossers’. 
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/91
+
+- You will find others who wish to obtain security from you and [to] obtain security from their people. Every time they are returned to [the influence of] disbelief, they fall back into it. So if they do not withdraw from you or offer you peace or restrain their hands, then seize them and kill them wherever you overtake them. And those - We have made for you against them a clear authorization.
 
 <hr>
