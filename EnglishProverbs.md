@@ -1049,3 +1049,23 @@ https://quran.com/4/91
 - You will find others who wish to obtain security from you and [to] obtain security from their people. Every time they are returned to [the influence of] disbelief, they fall back into it. So if they do not withdraw from you or offer you peace or restrain their hands, then seize them and kill them wherever you overtake them. And those - We have made for you against them a clear authorization.
 
 <hr>
+
+## You cannot win them all
+
+### Meaning
+It is not possible to succeed at everything you do.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/12/103
+
+- And most of the people, although you strive [for it], are not believers.
+
+https://quran.com/71/5
+
+- He said, "My Lord, indeed I invited my people [to truth] night and day.
+- But my invitation increased them not except in flight [i.e., aversion].
+- And indeed, every time I invited them that You may forgive them, they put their fingers in their ears, covered themselves with their garments,1 persisted, and were arrogant with [great] arrogance.
+
+
+<hr>
