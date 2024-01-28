@@ -1069,3 +1069,22 @@ https://quran.com/71/5
 
 
 <hr>
+
+## You've made your bed, now lie in it
+
+### Meaning
+On must accept the unpleasant results of something they have done
+
+### Relevant verses from the Qur'an
+
+https://quran.com/10/52
+
+- Then it will be said to those who had wronged, "Taste the punishment of eternity; are you being recompensed except for what you used to earn?"
+
+https://quran.com/29/55
+
+- On the Day the punishment will cover them from above them and from below their feet and it is said, "Taste [the result of] what you used to do."
+
+https://quran.com/59/15
+
+- [Theirs is] like the example of those shortly before them: they tasted the bad consequence of their affair, and they will have a painful punishment.
