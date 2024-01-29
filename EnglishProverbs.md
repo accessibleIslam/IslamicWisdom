@@ -1088,3 +1088,19 @@ https://quran.com/29/55
 https://quran.com/59/15
 
 - [Theirs is] like the example of those shortly before them: they tasted the bad consequence of their affair, and they will have a painful punishment.
+
+<hr>
+
+## Zeal without knowledge is fire without light
+
+### Meaning
+Anyone pursuing something with zeal and enthusiasm, but not with the requisite knowledge, is likely to be unsuccessful. It is a great thing to be passionate and eager to fight for something you believe in, but knowing the extent of one's ignorance is important.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/18/66
+
+- Moses said to him, "May I follow you on [the condition] that you teach me from what you have been taught of sound judgement?"
+- He said, "Indeed, with me you will never be able to have patience.
+- And how can you have patience for what you do not encompass in knowledge?"
+
