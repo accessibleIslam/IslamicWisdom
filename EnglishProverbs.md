@@ -724,9 +724,13 @@ Great things take time to build.
 
 ### Relevant verses from the Qur'an
 
-?
+https://quran.com/50/38
 
-- 
+- And We did certainly create the heavens and earth and what is between them in six days, and there touched Us no weariness.
+
+https://quran.com/32/4
+
+- It is Allah Who has created the heavens and the earth and everything in between in six Days, then established Himself on the Throne. You have no protector or intercessor besides Him. Will you not then be mindful?
 
 <hr>
 
