@@ -1104,3 +1104,17 @@ https://quran.com/18/66
 - He said, "Indeed, with me you will never be able to have patience.
 - And how can you have patience for what you do not encompass in knowledge?"
 
+<hr>
+
+## A bad workman always blames his tools
+
+### Meaning
+Upon failure, it is easier to blame the tools used rather than how they were employed.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/46/11
+
+- And those who disbelieve say of those who believe, "If it had [truly] been good, they would not have preceded us to it." And when they are not guided by it, they will say, "This is an ancient falsehood."
+
+<hr>
