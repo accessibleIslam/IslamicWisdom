@@ -1122,3 +1122,20 @@ https://quran.com/46/11
 - And those who disbelieve say of those who believe, "If it had [truly] been good, they would not have preceded us to it." And when they are not guided by it, they will say, "This is an ancient falsehood."
 
 <hr>
+
+## A drowning man will clutch at a straw
+
+### Meaning
+A person in desperate need of help will grab hold of some help, even if it is insignificant.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/40/49
+
+- And those in the Fire will say to the keepers of Hell, "Supplicate your Lord to lighten for us a day from the punishment."
+
+https://quran.com/7/50
+
+- And the companions of the Fire will call to the companions of Paradise, "Pour upon us some water or from whatever Allāh has provided you." They will say, "Indeed, Allāh has forbidden them both to the disbelievers
+
+<hr>
