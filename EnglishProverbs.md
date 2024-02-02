@@ -1139,3 +1139,17 @@ https://quran.com/7/50
 - And the companions of the Fire will call to the companions of Paradise, "Pour upon us some water or from whatever Allāh has provided you." They will say, "Indeed, Allāh has forbidden them both to the disbelievers
 
 <hr>
+
+## A miss is as good as a mile
+
+### Meaning
+A failure remains a failure, regardless of how close to success one has actually come.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/150
+
+- Indeed, those who disbelieve in Allāh and His messengers and wish to discriminate between Allāh and His messengers and say, "We believe in some and disbelieve in others," and wish to adopt a way in between -
+- Those are the disbelievers, truly. And We have prepared for the disbelievers a humiliating punishment.
+
+<hr>
