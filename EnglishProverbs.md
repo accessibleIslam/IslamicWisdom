@@ -1162,26 +1162,20 @@ https://quran.com/25/37
 
 
 <hr>
-
-## A ship in harbor is safe, but that is not what ships are built for
+## Absence makes the heart grow fonder
 
 ### Meaning
-Life’s true purpose lies beyond our comfort zones and that growth, exploration, and fulfillment require venturing into the unknown. 
+When someone or something is far away, one realizes how much one loves or misses them or it.
 
 ### Relevant verses from the Qur'an
 
-https://quran.com/4/150
+https://quran.com/12/84
 
-- Indeed, those who disbelieve in Allāh and His messengers and wish to discriminate between Allāh and His messengers and say, "We believe in some and disbelieve in others," and wish to adopt a way in between -
-- Those are the disbelievers, truly. And We have prepared for the disbelievers a humiliating punishment.
+- And he turned away from them and said, "Oh, my sorrow over Joseph," and his eyes became white from grief, for he was [of that] a suppressor.
+- They said, "By Allāh, you will not cease remembering Joseph until you become fatally ill or become of those who perish."
 
-https://quran.com/26/105
+https://quran.com/28/10
 
-- The people of Noah denied the messengers
-
-https://quran.com/25/37
-
-- And the people of Noah - when they denied the messengers, We drowned them, and We made them for mankind a sign. And We have prepared for the wrongdoers a painful punishment.
-
+- And the heart of Moses' mother became empty [of all else]. She was about to disclose [the matter concerning] him had We not bound fast her heart that she would be of the believers.
 
 <hr>
