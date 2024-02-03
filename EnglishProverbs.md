@@ -1162,3 +1162,26 @@ https://quran.com/25/37
 
 
 <hr>
+
+## A ship in harbor is safe, but that is not what ships are built for
+
+### Meaning
+Life’s true purpose lies beyond our comfort zones and that growth, exploration, and fulfillment require venturing into the unknown. 
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/150
+
+- Indeed, those who disbelieve in Allāh and His messengers and wish to discriminate between Allāh and His messengers and say, "We believe in some and disbelieve in others," and wish to adopt a way in between -
+- Those are the disbelievers, truly. And We have prepared for the disbelievers a humiliating punishment.
+
+https://quran.com/26/105
+
+- The people of Noah denied the messengers
+
+https://quran.com/25/37
+
+- And the people of Noah - when they denied the messengers, We drowned them, and We made them for mankind a sign. And We have prepared for the wrongdoers a painful punishment.
+
+
+<hr>
