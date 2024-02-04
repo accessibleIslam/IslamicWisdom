@@ -1162,6 +1162,7 @@ https://quran.com/25/37
 
 
 <hr>
+
 ## Absence makes the heart grow fonder
 
 ### Meaning
@@ -1177,5 +1178,18 @@ https://quran.com/12/84
 https://quran.com/28/10
 
 - And the heart of Moses' mother became empty [of all else]. She was about to disclose [the matter concerning] him had We not bound fast her heart that she would be of the believers.
+
+<hr>
+
+## Power corrupts, absolute power corrupts absolutely
+
+### Meaning
+The corrupting influence of power is total when one's power is total.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/41/15
+
+- As for ʿAad, they were arrogant upon the earth without right and said, "Who is greater than us in strength?" Did they not consider that Allāh who created them was greater than them in strength? But they were rejecting Our signs.
 
 <hr>
