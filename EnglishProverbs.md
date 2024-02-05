@@ -1193,3 +1193,25 @@ https://quran.com/41/15
 - As for ʿAad, they were arrogant upon the earth without right and said, "Who is greater than us in strength?" Did they not consider that Allāh who created them was greater than them in strength? But they were rejecting Our signs.
 
 <hr>
+
+## All that glitters is not gold
+
+### Meaning
+Not everything that looks precious or true turns out to be so
+
+### Relevant verses from the Qur'an
+
+https://quran.com/29/64
+
+- And this worldly life is not but diversion and amusement. And indeed, the home of the Hereafter - that is the [eternal] life, if only they knew.
+
+https://quran.com/3/14
+
+- Beautified for people is the love of that which they desire - of women and sons, heaped-up sums of gold and silver, fine branded horses, and cattle and tilled land. That is the enjoyment of worldly life, but Allāh has with Him the best return [i.e., Paradise].
+- Say, "Shall I inform you of [something] better than that? For those who fear Allāh will be gardens in the presence of their Lord beneath which rivers flow, wherein they abide eternally, and purified spouses and approval from Allāh. And Allāh is Seeing [i.e., aware] of [His] servants -
+
+https://quran.com/57/20
+
+- Know that the life of this world is but amusement and diversion and adornment and boasting to one another and competition in increase of wealth and children - like the example of a rain whose [resulting] plant growth pleases the tillers; then it dries and you see it turned yellow; then it becomes [scattered] debris. And in the Hereafter is severe punishment and forgiveness from Allāh and approval. And what is the worldly life except the enjoyment of delusion.
+
+<hr>
