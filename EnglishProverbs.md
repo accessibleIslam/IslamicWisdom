@@ -73,7 +73,7 @@ https://quran.com/9/122
 - **And it is not for the believers to go forth [to battle] all at once. For there should separate from every division of them a group [remaining] to obtain understanding in the religion and warn [i.e., advise] their people when they return to them that they might be cautious.**
 <hr>
 
-## Good things come to those who wait
+## Good things come to those who wait / All things come to those who wait
 
 ### Meaning
 If you are patient, good things can happen
@@ -1213,5 +1213,23 @@ https://quran.com/3/14
 https://quran.com/57/20
 
 - Know that the life of this world is but amusement and diversion and adornment and boasting to one another and competition in increase of wealth and children - like the example of a rain whose [resulting] plant growth pleases the tillers; then it dries and you see it turned yellow; then it becomes [scattered] debris. And in the Hereafter is severe punishment and forgiveness from Allāh and approval. And what is the worldly life except the enjoyment of delusion.
+
+<hr>
+
+## All things must pass
+
+### Meaning
+Nothing lasts forever.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/28/88
+
+- And do not invoke with Allāh another deity. There is no deity except Him. Everything will be destroyed except His Face. His is the judgement, and to Him you will be returned.
+
+https://quran.com/55/26
+
+- Everyone upon it [i.e., the earth] will perish,
+- And there will remain the Face of your Lord, Owner of Majesty and Honor.
 
 <hr>
