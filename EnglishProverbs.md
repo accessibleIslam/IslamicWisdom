@@ -1138,6 +1138,13 @@ https://quran.com/7/50
 
 - And the companions of the Fire will call to the companions of Paradise, "Pour upon us some water or from whatever Allāh has provided you." They will say, "Indeed, Allāh has forbidden them both to the disbelievers
 
+https://quran.com/70/11
+
+- They will be shown each other. The criminal will wish that he could be ransomed from the punishment of that Day by his children.
+- And his wife and his brother
+- And his nearest kindred who shelter him.
+- And whoever is on earth entirely [so] then it could save him.
+
 <hr>
 
 ## A miss is as good as a mile
