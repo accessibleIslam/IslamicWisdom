@@ -1240,3 +1240,17 @@ https://quran.com/55/26
 - And there will remain the Face of your Lord, Owner of Majesty and Honor.
 
 <hr>
+
+## As the twig is bent, so shall the tree grow
+
+### Meaning
+The proverb means that early influences have a permanent effect on a person. As they grow up, they will act the way they where taught to act as a child. For example, most people who have criminal tendencies acquire them as the result of bad environment and improper association during childhood.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/71/26
+
+- And Noah said, "My Lord, do not leave upon the earth from among the disbelievers an inhabitant.
+- Indeed, if You leave them, they will mislead Your servants and not beget except [every] wicked one and [confirmed] disbeliever.
+
+<hr>
