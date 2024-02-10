@@ -1254,3 +1254,24 @@ https://quran.com/71/26
 - Indeed, if You leave them, they will mislead Your servants and not beget except [every] wicked one and [confirmed] disbeliever.
 
 <hr>
+
+## Behind every successful man there stands a woman
+
+### Meaning
+A man’s achievements are made possible by the support and work of their wife or female partner. 
+
+### Relevant verses from the Qur'an
+
+https://quran.com/93/8
+
+- And He found you poor and made [you] self-sufficient.
+
+https://quran.com/25/74
+
+- And those who say, "Our Lord, grant us from among our wives and offspring comfort to our eyes and make us a leader [i.e., example] for the righteous."
+
+https://quran.com/7/189
+
+- It is He who created you from one soul and created from it its mate that he might dwell in security with her. And when he [i.e., man] covers her, she carries a light burden [i.e., a pregnancy] and continues therein. And when it becomes heavy, they both invoke Allāh, their Lord, "If You should give us a good [child], we will surely be among the grateful."
+
+<hr>
