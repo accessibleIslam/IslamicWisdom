@@ -1275,3 +1275,19 @@ https://quran.com/7/189
 - It is He who created you from one soul and created from it its mate that he might dwell in security with her. And when he [i.e., man] covers her, she carries a light burden [i.e., a pregnancy] and continues therein. And when it becomes heavy, they both invoke Allāh, their Lord, "If You should give us a good [child], we will surely be among the grateful."
 
 <hr>
+
+## Beware of Greeks bearing gifts
+
+### Meaning
+A proverb to warn against trusting an enemy or adversary, even when they appear to be making an enticing offer.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/9/7
+
+- How can there be for the polytheists a treaty in the sight of Allāh and with His Messenger, except for those with whom you made a treaty at al-Masjid al-Ḥarām? So as long as they are upright toward you, be upright toward them. Indeed, Allāh loves the righteous [who fear Him].
+- How [can there be a treaty] while, if they gain dominance over you, they do not observe concerning you any pact of kinship or covenant of protection? They satisfy you with their mouths, but their hearts refuse [compliance], and most of them are defiantly disobedient.
+- They have exchanged the signs of Allāh for a small price and averted [people] from His way. Indeed, it was evil that they were doing.
+- They do not observe toward a believer any pact of kinship or covenant of protection. And it is they who are the transgressors.
+
+<hr>
