@@ -1290,4 +1290,10 @@ https://quran.com/9/7
 - They have exchanged the signs of Allāh for a small price and averted [people] from His way. Indeed, it was evil that they were doing.
 - They do not observe toward a believer any pact of kinship or covenant of protection. And it is they who are the transgressors.
 
+https://quran.com/27/35
+
+- But indeed, I will send to them a gift and see with what [reply] the messengers will return."
+- So when they came to Solomon, he said, "Do you provide me with wealth? But what Allāh has given me is better than what He has given you. Rather, it is you who rejoice in your gift.
+- Return to them, for we will surely come to them with soldiers that they will be powerless to encounter, and we will surely expel them therefrom in humiliation, and they will be debased."
+
 <hr>
