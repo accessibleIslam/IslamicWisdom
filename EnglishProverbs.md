@@ -1297,3 +1297,17 @@ https://quran.com/27/35
 - Return to them, for we will surely come to them with soldiers that they will be powerless to encounter, and we will surely expel them therefrom in humiliation, and they will be debased."
 
 <hr>
+
+
+## Big fish eat little fish
+
+### Meaning
+The rich and powerfull exploit and manipulate the poor and weak.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/27/34
+
+- She said, "Indeed kings - when they enter a city, they ruin it and render the honored of its people humbled. And thus do they do.
+
+<hr>
