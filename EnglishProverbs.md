@@ -1310,4 +1310,23 @@ https://quran.com/27/34
 
 - She said, "Indeed kings - when they enter a city, they ruin it and render the honored of its people humbled. And thus do they do.
 
+https://quran.com/28/76
+
+- Indeed, Qārūn was from the people of Moses, but he tyrannized them. And We gave him of treasures whose keys would burden a band of strong men; thereupon his people said to him, "Do not exult. Indeed, Allāh does not like the exultant.
+- But seek, through that which Allāh has given you, the home of the Hereafter; and [yet], do not forget your share of the world. And do good as Allāh has done good to you. And desire not corruption in the land. Indeed, Allāh does not like corrupters."
+
+https://quran.com/28/4
+
+- Indeed, Pharaoh exalted himself in the land and made its people into factions, oppressing a sector among them, slaughtering their [newborn] sons and keeping their females alive. Indeed, he was of the corrupters.
+
+https://quran.com/7/74
+
+- And remember when He made you successors after the ʿAad and settled you in the land, [and] you take for yourselves palaces from its plains and carve from the mountains, homes. Then remember the favors of Allāh and do not commit abuse on the earth, spreading corruption."
+
+https://quran.com/26/128
+
+- Do you construct on every elevation a sign,1 amusing yourselves,
+- And take for yourselves constructions [i.e., palaces and fortresses] that you might abide eternally?
+- And when you strike, you strike as tyrants.
+
 <hr>
