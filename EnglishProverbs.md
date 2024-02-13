@@ -1330,3 +1330,16 @@ https://quran.com/26/128
 - And when you strike, you strike as tyrants.
 
 <hr>
+
+## Blood is thicker than water
+
+### Meaning
+Familial bonds will always be stronger than other relationships.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/8/75
+
+- And those who believed after [the initial emigration] and emigrated and fought with you - they are of you. But those of [blood] relationship are more entitled [to inheritance] in the decree of Allāh. Indeed, Allāh is Knowing of all things.
+
+<hr>
