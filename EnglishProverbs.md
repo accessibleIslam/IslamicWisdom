@@ -1343,3 +1343,17 @@ https://quran.com/8/75
 - And those who believed after [the initial emigration] and emigrated and fought with you - they are of you. But those of [blood] relationship are more entitled [to inheritance] in the decree of Allāh. Indeed, Allāh is Knowing of all things.
 
 <hr>
+
+## Business before pleasure
+
+### Meaning
+Discharging one's obligations must take precedence over devoting time to pursuits meant solely for one's own gratification.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/62/9
+
+- O you who have believed, when [the adhān] is called for the prayer on the day of Jumuʿah [Friday], then proceed to the remembrance of Allāh and leave trade. That is better for you, if you only knew.
+- And when the prayer has been concluded, disperse within the land and seek from the bounty of Allāh, and remember Allāh often that you may succeed.
+
+<hr>
