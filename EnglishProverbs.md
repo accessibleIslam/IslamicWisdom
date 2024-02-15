@@ -1357,3 +1357,18 @@ https://quran.com/62/9
 - And when the prayer has been concluded, disperse within the land and seek from the bounty of Allāh, and remember Allāh often that you may succeed.
 
 <hr>
+
+
+## Caesar's wife must be above suspicion
+
+### Meaning
+Those in positions of authority should avoid even the implication of impropriety.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/33/32
+
+- O wives of the Prophet, you are not like anyone among women. If you fear Allāh, then do not be soft in speech [to men], lest he in whose heart is disease should covet, but speak with appropriate speech.
+- And abide in your houses and do not display yourselves as [was] the display of the former times of ignorance. And establish prayer and give zakāh and obey Allāh and His Messenger. Allāh intends only to remove from you the impurity [of sin], O people of the [Prophet's] household, and to purify you with [extensive] purification.
+
+<hr>
