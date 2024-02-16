@@ -313,6 +313,10 @@ https://quran.com/33/6
 
 - **The Prophet is more worthy of the believers than themselves, and his wives are [in the position of] their mothers. And those of [blood] relationship are more entitled [to inheritance] in the decree of Allāh than the [other] believers and the emigrants, except that you may do to your close associates a kindness [through bequest]. That was in the Book inscribed.**
 
+https://quran.com/66/6
+
+- O you who have believed, protect yourselves and your families from a Fire whose fuel is people and stones, over which are [appointed] angels, harsh and severe; they do not disobey Allāh in what He commands them but do what they are commanded.
+
 <hr>
 
 ## Cleanliness is next to godliness
@@ -1358,7 +1362,6 @@ https://quran.com/62/9
 
 <hr>
 
-
 ## Caesar's wife must be above suspicion
 
 ### Meaning
@@ -1370,5 +1373,24 @@ https://quran.com/33/32
 
 - O wives of the Prophet, you are not like anyone among women. If you fear Allāh, then do not be soft in speech [to men], lest he in whose heart is disease should covet, but speak with appropriate speech.
 - And abide in your houses and do not display yourselves as [was] the display of the former times of ignorance. And establish prayer and give zakāh and obey Allāh and His Messenger. Allāh intends only to remove from you the impurity [of sin], O people of the [Prophet's] household, and to purify you with [extensive] purification.
+
+<hr>
+
+## Cheats never prosper
+
+### Meaning
+One does not profit by cheating.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/30/39
+
+- And whatever you give for interest [i.e., advantage] to increase within the wealth of people will not increase with Allāh. But what you give in zakāh, desiring the face [i.e., approval] of Allāh - those are the multipliers.
+
+https://quran.com/9/34
+
+- O you who have believed, indeed many of the scholars and the monks devour the wealth of people unjustly and avert [them] from the way of Allāh. And those who hoard gold and silver and spend it not in the way of Allāh - give them tidings of a painful punishment.
+- The Day when it will be heated in the fire of Hell and seared therewith will be their foreheads, their flanks, and their backs, [it will be said], "This is what you hoarded for yourselves, so taste what you used to hoard."
+
 
 <hr>
