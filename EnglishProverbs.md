@@ -1392,5 +1392,22 @@ https://quran.com/9/34
 - O you who have believed, indeed many of the scholars and the monks devour the wealth of people unjustly and avert [them] from the way of Allāh. And those who hoard gold and silver and spend it not in the way of Allāh - give them tidings of a painful punishment.
 - The Day when it will be heated in the fire of Hell and seared therewith will be their foreheads, their flanks, and their backs, [it will be said], "This is what you hoarded for yourselves, so taste what you used to hoard."
 
+<hr>
+
+## Count your blessings
+
+### Meaning
+To focus one's attention on the circumstances of one's life which are pleasant or fortunate, especially with the intention of diverting one's thoughts from serious or disagreeable matters.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/93/6
+
+- Did He not find you an orphan and give [you] refuge?
+- And He found you lost and guided [you],
+- And He found you poor and made [you] self-sufficient.
+- So as for the orphan, do not oppress [him].
+- And as for the petitioner, do not repel [him].
+- But as for the favor of your Lord, report [it].
 
 <hr>
