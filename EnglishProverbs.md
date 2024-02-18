@@ -1411,3 +1411,28 @@ https://quran.com/93/6
 - But as for the favor of your Lord, report [it].
 
 <hr>
+
+## Crime does not pay
+
+### Meaning
+Lawbreakers do not benefit from their actions.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/10/27
+
+- But they who have earned [blame for] evil doings - the recompense of an evil deed is its equivalent, and humiliation will cover them. They will have from Allāh no protector. It will be as if their faces are covered with pieces of the night - so dark [are they]. Those are the companions of the Fire; they will abide therein eternally.
+
+https://quran.com/45/15
+
+- Whoever does a good deed - it is for himself; and whoever does evil - it is against it [i.e., the self or soul]. Then to your Lord you will be returned.
+
+https://quran.com/16/45
+
+- Then, do those who have planned evil deeds feel secure that Allāh will not cause the earth to swallow them or that the punishment will not come upon them from where they do not perceive?
+
+https://quran.com/35/43
+
+- [Due to] arrogance in the land and plotting of evil; but the evil plot does not encompass except its own people. Then do they await except the way [i.e., fate] of the former peoples? But you will never find in the way [i.e., established method] of Allāh any change, and you will never find in the way of Allāh any alteration.
+
+<hr>
