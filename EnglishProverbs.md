@@ -1436,3 +1436,25 @@ https://quran.com/35/43
 - [Due to] arrogance in the land and plotting of evil; but the evil plot does not encompass except its own people. Then do they await except the way [i.e., fate] of the former peoples? But you will never find in the way [i.e., established method] of Allāh any change, and you will never find in the way of Allāh any alteration.
 
 <hr>
+
+## Cut one's coat according to one's cloth
+
+### Meaning
+To live within one's means, without spending more than is affordable.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/17/29
+
+- And do not make your hand [as] chained to your neck or extend it completely and [thereby] become blamed and insolvent.
+
+https://quran.com/65/7
+
+- Let a man of wealth spend from his wealth, and he whose provision is restricted - let him spend from what Allāh has given him. Allāh does not charge a soul except [according to] what He has given it. Allāh will bring about, after hardship, ease [i.e., relief].
+
+https://quran.com/25/67
+
+- And [they are] those who, when they spend, do so not excessively or sparingly but are ever, between that, [justly] moderate
+
+
+<hr>
