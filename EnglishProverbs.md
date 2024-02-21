@@ -1458,3 +1458,20 @@ https://quran.com/25/67
 
 
 <hr>
+
+## Do not burn your bridges behind you
+
+### Meaning
+To do something that cannot be easily undone or reversed in the future (often because one has behaved offensively or unfavorably). While parting ways with somebody, one should not destroy any chances of reconciliation.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/65/2
+
+- And when they have [nearly] fulfilled their term, either retain them according to acceptable terms or part with them according to acceptable terms. And bring to witness two just men from among you and establish the testimony for [the acceptance of] Allāh. That is instructed to whoever should believe in Allāh and the Last Day. And whoever fears Allāh - He will make for him a way out
+
+https://quran.com/2/236
+
+- There is no blame upon you if you divorce women you have not touched nor specified for them an obligation. But give them [a gift of] compensation - the wealthy according to his capability and the poor according to his capability - a provision according to what is acceptable, a duty upon the doers of good.
+
+<hr>
