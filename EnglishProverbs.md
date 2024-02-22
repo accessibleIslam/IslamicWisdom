@@ -1392,6 +1392,10 @@ https://quran.com/9/34
 - O you who have believed, indeed many of the scholars and the monks devour the wealth of people unjustly and avert [them] from the way of Allāh. And those who hoard gold and silver and spend it not in the way of Allāh - give them tidings of a painful punishment.
 - The Day when it will be heated in the fire of Hell and seared therewith will be their foreheads, their flanks, and their backs, [it will be said], "This is what you hoarded for yourselves, so taste what you used to hoard."
 
+https://quran.com/20/61
+
+- Moses said to them [i.e., the magicians summoned by Pharaoh], "Woe to you! Do not invent a lie against Allāh or He will exterminate you with a punishment; and he has failed who invents [such falsehood]."
+
 <hr>
 
 ## Count your blessings
@@ -1475,3 +1479,25 @@ https://quran.com/2/236
 - There is no blame upon you if you divorce women you have not touched nor specified for them an obligation. But give them [a gift of] compensation - the wealthy according to his capability and the poor according to his capability - a provision according to what is acceptable, a duty upon the doers of good.
 
 <hr>
+
+
+## Don't cut off your nose to spite your face
+
+### Meaning
+A warning against acting out of pique, or against pursuing revenge in a way that would damage oneself more than the object of one's anger.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/17/61
+
+- And [mention] when We said to the angels, "Prostrate to Adam," and they prostrated, except for Iblees. He said, "Should I prostrate to one You created from clay?"
+- [Iblees] said, "Do You see this one whom You have honored above me? If You delay me [i.e., my death] until the Day of Resurrection, I will surely destroy his descendants, except for a few."
+- [Allāh] said, "Go, for whoever of them follows you, indeed Hell will be the recompense of [all of] you - an ample recompense.
+
+https://quran.com/5/27
+
+- And recite to them the story of Adam's two sons, in truth, when they both made an offering [to Allāh], and it was accepted from one of them but was not accepted from the other. Said [the latter], "I will surely kill you." Said [the former], "Indeed, Allāh only accepts from the righteous [who fear Him].
+- If you should raise your hand toward me to kill me - I shall not raise my hand toward you to kill you. Indeed, I fear Allāh, Lord of the worlds.
+- Indeed, I want you to obtain [thereby] my sin and your sin so you will be among the companions of the Fire. And that is the recompense of wrongdoers."
+- And his soul permitted to him the murder of his brother, so he killed him and became among the losers.
+
