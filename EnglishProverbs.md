@@ -1480,7 +1480,6 @@ https://quran.com/2/236
 
 <hr>
 
-
 ## Don't cut off your nose to spite your face
 
 ### Meaning
@@ -1501,3 +1500,33 @@ https://quran.com/5/27
 - Indeed, I want you to obtain [thereby] my sin and your sin so you will be among the companions of the Fire. And that is the recompense of wrongdoers."
 - And his soul permitted to him the murder of his brother, so he killed him and became among the losers.
 
+<hr>
+
+## Do not let the grass grow beneath (one's) feet
+
+### Meaning
+To act quickly, to make good use of one's time, or to seize an opportunity
+
+### Relevant verses from the Qur'an
+
+https://quran.com/39/55
+
+- And follow the best of what was revealed to you from your Lord [i.e., the Qur’ān] before the punishment comes upon you suddenly while you do not perceive,
+- Lest a soul should say, "Oh, [how great is] my regret over what I neglected in regard to Allāh and that I was among the mockers."
+- Or [lest] it say, "If only Allāh had guided me, I would have been among the righteous."
+- Or [lest] it say when it sees the punishment, "If only I had another turn so I could be among the doers of good."
+
+https://quran.com/2/148
+
+- For each [religious following] is a [prayer] direction toward which it faces. So race to [all that is] good. Wherever you may be, Allāh will bring you forth [for judgement] all together. Indeed, Allāh is over all things competent.
+
+https://quran.com/57/21
+
+- Race [i.e., compete] toward forgiveness from your Lord and a Garden whose width is like the width of the heavens and earth, prepared for those who believed in Allāh and His messengers. That is the bounty of Allāh which He gives to whom He wills, and Allāh is the possessor of great bounty.
+
+https://quran.com/63/10
+
+- And spend [in the way of Allāh] from what We have provided you before death approaches one of you and he says, "My Lord, if only You would delay me for a brief term so I would give charity and be of the righteous."
+- But never will Allāh delay a soul when its time has come. And Allāh is Aware of what you do.
+
+<hr>
