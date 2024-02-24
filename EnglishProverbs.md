@@ -1530,3 +1530,25 @@ https://quran.com/63/10
 - But never will Allāh delay a soul when its time has come. And Allāh is Aware of what you do.
 
 <hr>
+
+## Don't look a gift horse in the mouth
+
+### Meaning
+Don't be ungrateful when you receive a gift.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/34/15
+
+- There was for [the tribe of] Saba’ in their dwelling place a sign: two [fields of] gardens on the right and on the left. [They were told], "Eat from the provisions of your Lord and be grateful to Him. A good land [have you], and a forgiving Lord."
+- But they turned away [refusing], so We sent upon them the flood of the dam,1 and We replaced their two [fields of] gardens with gardens of bitter fruit, tamarisks and something of sparse lote trees.
+- [By] that We repaid them because they disbelieved. And do We [thus] repay except the ungrateful?
+- And We placed between them and the cities which We had blessed1 [many] visible cities. And We determined between them the [distances of] journey,2 [saying], "Travel between them by night or by day in safety."
+- But [insolently] they said, "Our Lord, lengthen the distance between our journeys," and wronged themselves, so We made them narrations1 and dispersed them in total dispersion. Indeed in that are signs for everyone patient and grateful.
+
+https://quran.com/16/112
+
+- And Allāh presents an example: a city [i.e., Makkah] which was safe and secure, its provision coming to it in abundance from every location, but it denied the favors of Allāh. So Allāh made it taste the envelopment of hunger and fear for what they had been doing.
+- And there had certainly come to them a Messenger from among themselves, but they denied him; so punishment overtook them while they were wrongdoers.
+
+<hr>
