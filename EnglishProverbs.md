@@ -1552,3 +1552,19 @@ https://quran.com/16/112
 - And there had certainly come to them a Messenger from among themselves, but they denied him; so punishment overtook them while they were wrongdoers.
 
 <hr>
+
+## Do not close the stable door after the horse has bolted
+
+### Meaning
+To attempt to prevent a problem that has already occurred.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/23/63
+
+- But their hearts are covered with confusion over this, and they have [evil] deeds besides that [i.e., disbelief] which they are doing,
+- Until when We seize their affluent ones with punishment,1 at once they are crying [to Allāh] for help.
+- Do not cry out today. Indeed, by Us you will not be helped.
+- My verses had already been recited to you, but you were turning back on your heels.
+
+<hr>
