@@ -1568,3 +1568,18 @@ https://quran.com/23/63
 - My verses had already been recited to you, but you were turning back on your heels.
 
 <hr>
+
+## Do not spoil the ship for a ha'porth of tar
+
+### Meaning
+To have something important fail for want of a small amount of money or effort.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/16/94
+
+- And do not take your oaths as [means of] deceit between you, lest a foot slip after it was [once] firm, and you would taste evil [in this world] for what [people] you diverted from the way of Allāh, and you would have [in the Hereafter] a great punishment.
+- And do not exchange the covenant of Allāh for a small price. Indeed, what is with Allāh is best for you, if only you could know.
+
+
+<hr>
