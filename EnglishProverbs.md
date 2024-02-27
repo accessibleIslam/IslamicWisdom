@@ -1581,5 +1581,26 @@ https://quran.com/16/94
 - And do not take your oaths as [means of] deceit between you, lest a foot slip after it was [once] firm, and you would taste evil [in this world] for what [people] you diverted from the way of Allāh, and you would have [in the Hereafter] a great punishment.
 - And do not exchange the covenant of Allāh for a small price. Indeed, what is with Allāh is best for you, if only you could know.
 
+<hr>
+
+## Do not teach your Grandmother to suck eggs
+
+### Meaning
+Do not tell an expert how to do things.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/2/140
+
+- Or do you say that Abraham and Ishmael and Isaac and Jacob and the Descendants were Jews or Christians? Say, "Are you more knowing or is Allāh?" And who is more unjust than one who conceals a testimony1 he has from Allāh? And Allāh is not unaware of what you do.
+
+https://quran.com/10/18
+
+- And they worship other than Allāh that which neither harms them nor benefits them, and they say, "These are our intercessors with Allāh." Say, "Do you inform Allāh of something He does not know in the heavens or on the earth?" Exalted is He and high above what they associate with Him.
+
+https://quran.com/13/33
+
+- Then is He who is a maintainer of every soul, [knowing] what it has earned, [like any other]? But to Allāh they have attributed partners. Say, "Name them. Or do you inform Him of that which He knows not upon the earth or of what is apparent [i.e., alleged] of speech?" Rather, their [own] plan has been made attractive to those who disbelieve, and they have been averted from the way. And whomever Allāh sends astray - there will be for him no guide.
+
 
 <hr>
