@@ -1604,3 +1604,18 @@ https://quran.com/13/33
 
 
 <hr>
+
+## Empty vessels make the most sound
+
+### Meaning
+Talkative, opinionated people are often ignorant.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/59/11
+
+- Have you not considered those who practice hypocrisy, saying to their brothers [i.e., associates] who have disbelieved among the People of the Scripture, "If you are expelled, we will surely leave with you, and we will not obey, in regard to you, anyone - ever; and if you are fought, we will surely aid you." But Allāh testifies that they are liars.
+- If they are expelled, they will not leave with them, and if they are fought, they will not aid them. And [even] if they should aid them, they will surely turn their backs; then [thereafter] they will not be aided.
+- You [believers] are more fearful within their breasts than Allāh. That is because they are a people who do not understand.
+
+<hr>
