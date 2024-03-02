@@ -1602,7 +1602,6 @@ https://quran.com/13/33
 
 - Then is He who is a maintainer of every soul, [knowing] what it has earned, [like any other]? But to Allāh they have attributed partners. Say, "Name them. Or do you inform Him of that which He knows not upon the earth or of what is apparent [i.e., alleged] of speech?" Rather, their [own] plan has been made attractive to those who disbelieve, and they have been averted from the way. And whomever Allāh sends astray - there will be for him no guide.
 
-
 <hr>
 
 ## Empty vessels make the most sound
@@ -1617,5 +1616,18 @@ https://quran.com/59/11
 - Have you not considered those who practice hypocrisy, saying to their brothers [i.e., associates] who have disbelieved among the People of the Scripture, "If you are expelled, we will surely leave with you, and we will not obey, in regard to you, anyone - ever; and if you are fought, we will surely aid you." But Allāh testifies that they are liars.
 - If they are expelled, they will not leave with them, and if they are fought, they will not aid them. And [even] if they should aid them, they will surely turn their backs; then [thereafter] they will not be aided.
 - You [believers] are more fearful within their breasts than Allāh. That is because they are a people who do not understand.
+
+<hr>
+
+## Every tide has its ebb
+
+### Meaning
+The tide goes in and out unceasingly, and neither good fortune nor ill fortune lasts forever.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/3/140
+
+- If a wound should touch you - there has already touched the [opposing] people a wound similar to it. And these days [of varying conditions] We alternate among the people so that Allāh may make evident those who believe and [may] take to Himself from among you martyrs - and Allāh does not like the wrongdoers -
 
 <hr>
