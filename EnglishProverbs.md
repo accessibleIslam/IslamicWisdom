@@ -1631,3 +1631,29 @@ https://quran.com/3/140
 - If a wound should touch you - there has already touched the [opposing] people a wound similar to it. And these days [of varying conditions] We alternate among the people so that Allāh may make evident those who believe and [may] take to Himself from among you martyrs - and Allāh does not like the wrongdoers -
 
 <hr>
+
+## Fine words butter no parsnips
+
+### Meaning
+Nothing is achieved by empty words or flattery.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/9/42
+
+- Had it been a near [i.e., easy] gain and a moderate trip, they [i.e., the hypocrites] would have followed you, but distant to them was the journey. And they will swear by Allāh, "If we were able, we would have gone forth with you," destroying themselves [through false oaths], and Allāh knows that indeed they are liars.
+- Allāh has pardoned you, [O Muḥammad, but] why did you give them permission [to remain behind]? [You should not have] until it was evident to you who were truthful and you knew [who were] the liars.
+- Those who believe in Allāh and the Last Day would not ask permission of you to be excused from striving [i.e., fighting] with their wealth and their lives. And Allāh is Knowing of those who fear Him.
+- Only those would ask permission of you who do not believe in Allāh and the Last Day and whose hearts have doubted, and they, in their doubt, are hesitating.
+- And if they had intended to go forth, they would have prepared for it [some] preparation. But Allāh disliked their being sent, so He kept them back, and they were told, "Remain [behind] with those who remain."
+
+https://quran.com/24/53
+
+- **And they swear by Allāh their strongest oaths that if you ordered them, they would go forth [in Allāh's cause]. Say, "Do not swear. [Such] obedience is known. Indeed, Allāh is [fully] Aware of that which you do."**
+
+https://quran.com/61/2
+
+- **O believers! Why do you say what you do not do?**
+- **How despicable it is in the sight of Allah that you say what you do not do!**
+
+<hr>
