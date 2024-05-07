@@ -1657,3 +1657,20 @@ https://quran.com/61/2
 - **How despicable it is in the sight of Allah that you say what you do not do!**
 
 <hr>
+
+## First things first
+
+### Meaning
+Deal with matters of highest priority first; deal with matters in logical sequence. 
+
+### Relevant verses from the Qur'an
+
+https://quran.com/9/24
+
+- Say, [O Muḥammad], "If your fathers, your sons, your brothers, your wives, your relatives, wealth which you have obtained, commerce wherein you fear decline, and dwellings with which you are pleased are more beloved to you than Allāh and His Messenger and jihād [i.e., striving] in His cause, then wait until Allāh executes His command. And Allāh does not guide the defiantly disobedient people."
+
+https://quran.com/63/9
+
+- O you who have believed, let not your wealth and your children divert you from the remembrance of Allāh. And whoever does that - then those are the losers.
+
+<hr>
