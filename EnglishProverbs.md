@@ -1674,3 +1674,20 @@ https://quran.com/63/9
 - O you who have believed, let not your wealth and your children divert you from the remembrance of Allāh. And whoever does that - then those are the losers.
 
 <hr>
+
+## Give him enough rope and he'll hang himself
+
+### Meaning
+If one gives someone enough freedom of action, they may destroy themselves by foolish actions.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/49/7
+
+- And know that among you is the Messenger of Allāh. If he were to obey you in much of the matter, you would be in difficulty, but Allāh has endeared to you the faith and has made it pleasing in your hearts and has made hateful to you disbelief, defiance and disobedience. Those are the [rightly] guided.
+
+https://quran.com/23/71
+
+- But if the Truth [i.e., Allāh] had followed their inclinations, the heavens and the earth and whoever is in them would have been ruined. Rather, We have brought them their message, but they, from their message, are turning away.
+
+<hr>
