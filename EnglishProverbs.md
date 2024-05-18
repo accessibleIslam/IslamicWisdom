@@ -1691,3 +1691,20 @@ https://quran.com/23/71
 - But if the Truth [i.e., Allāh] had followed their inclinations, the heavens and the earth and whoever is in them would have been ruined. Rather, We have brought them their message, but they, from their message, are turning away.
 
 <hr>
+
+## Good fences make good neighbors
+
+### Meaning
+It is better to mind one's own business than get involved with other people's affairs.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/49/12
+
+- O you who have believed, avoid much [negative] assumption. Indeed, some assumption is sin. And do not spy or backbite each other. Would one of you like to eat the flesh of his brother when dead? You would detest it. And fear Allāh; indeed, Allāh is Accepting of Repentance and Merciful.
+
+https://quran.com/17/36
+
+- And do not pursue (i.e., do not assume and do not say) that of which you have no knowledge. Indeed, the hearing, the sight and the heart - about all those [one] will be questioned.
+
+<hr>
