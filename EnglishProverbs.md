@@ -1708,3 +1708,25 @@ https://quran.com/17/36
 - And do not pursue (i.e., do not assume and do not say) that of which you have no knowledge. Indeed, the hearing, the sight and the heart - about all those [one] will be questioned.
 
 <hr>
+
+## He who sups with the devil should have a long spoon
+
+### Meaning
+One must be careful when dealing with bad people. 
+
+### Relevant verses from the Qur'an
+
+https://quran.com/8/58
+
+- If you [have reason to] fear from a people betrayal, throw [their treaty] back to them, [putting you] on equal terms. Indeed, Allāh does not like traitors.
+
+https://quran.com/18/19
+
+- And similarly, We awakened them that they might question one another. Said a speaker from among them, "How long have you remained [here]?" They said, "We have remained a day or part of a day." They said, "Your Lord is most knowing of how long you remained. So send one of you with this silver coin of yours to the city and let him look to which is the best of food and bring you provision from it and let him be cautious. And let no one be aware of you.
+- Indeed, if they come to know of you, they will stone you or return you to their religion. And never would you succeed, then - ever."
+
+https://quran.com/12/5
+
+- He said, "O my son, do not relate your vision to your brothers or they will contrive against you a plan. Indeed Satan, to man, is a manifest enemy.
+
+<hr>
