@@ -1730,3 +1730,25 @@ https://quran.com/12/5
 - He said, "O my son, do not relate your vision to your brothers or they will contrive against you a plan. Indeed Satan, to man, is a manifest enemy.
 
 <hr>
+
+## History repeats itself
+
+### Meaning
+Things that have happened in the past will or tend to happen again in one way or another. 
+
+### Relevant verses from the Qur'an
+
+https://quran.com/17/58
+
+- And there is no city but that We will destroy it before the Day of Resurrection or punish it with a severe punishment. That has ever been in the Register inscribed.
+
+https://quran.com/33/62
+
+- [This is] the established way of Allāh with those who passed on before; and you will not find in the way of Allāh any change.
+
+https://quran.com/35/43
+
+- [Due to] arrogance in the land and plotting of evil; but the evil plot does not encompass except its own people. Then do they await except the way [i.e., fate] of the former peoples? But you will never find in the way [i.e., established method] of Allāh any change, and you will never find in the way of Allāh any alteration.
+- Have they not traveled through the land and observed how was the end of those before them? And they were greater than them in power. But Allāh is not to be caused failure [i.e., prevented] by anything in the heavens or on the earth. Indeed, He is ever Knowing and Competent.
+
+<hr>
