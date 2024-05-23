@@ -1752,3 +1752,24 @@ https://quran.com/35/43
 - Have they not traveled through the land and observed how was the end of those before them? And they were greater than them in power. But Allāh is not to be caused failure [i.e., prevented] by anything in the heavens or on the earth. Indeed, He is ever Knowing and Competent.
 
 <hr>
+
+## Horses for courses
+
+### Meaning
+Different people are suited for different jobs or situations; what is fitting in one case may not be fitting in another.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/3/36
+
+- But when she delivered her, she said, "My Lord, I have delivered a female." And Allāh was most knowing of what she delivered, and the male is not like the female. "And I have named her Mary, and I seek refuge for her in You and [for] her descendants from Satan, the expelled [from the mercy of Allāh]."
+
+https://quran.com/4/32
+
+- And do not wish for that by which Allāh has made some of you exceed others. For men is a share of what they have earned, and for women is a share of what they have earned. And ask Allāh of His bounty. Indeed Allāh is ever, of all things, Knowing.
+
+https://quran.com/43/32
+
+- Do they distribute the mercy of your Lord? It is We who have apportioned among them their livelihood in the life of this world and have raised some of them above others in degrees [of rank] that they may make use of one another for service. But the mercy of your Lord is better than whatever they accumulate.
+
+<hr>
