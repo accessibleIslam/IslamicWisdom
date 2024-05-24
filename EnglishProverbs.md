@@ -1773,3 +1773,21 @@ https://quran.com/43/32
 - Do they distribute the mercy of your Lord? It is We who have apportioned among them their livelihood in the life of this world and have raised some of them above others in degrees [of rank] that they may make use of one another for service. But the mercy of your Lord is better than whatever they accumulate.
 
 <hr>
+
+## Never tell tales out of school
+
+### Meaning
+Never reveal confidential or sensitive information. Do not gossip.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/66/3
+
+- And [remember] when the Prophet confided to one of his wives a statement; and when she informed [another] of it and Allāh showed it to him, he made known part of it and ignored a part. And when he informed her about it, she said, "Who told you this?" He said, "I was informed by the Knowing, the Aware."
+- If you two [wives] repent to Allāh, [it is best], for your hearts have deviated. But if you cooperate against him - then indeed Allāh is his protector, and Gabriel and the righteous of the believers and the angels, moreover, are [his] assistants.
+
+https://quran.com/49/12
+
+- O you who have believed, avoid much [negative] assumption. Indeed, some assumption is sin. And do not spy or backbite each other. Would one of you like to eat the flesh of his brother when dead? You would detest it. And fear Allāh; indeed, Allāh is Accepting of Repentance and Merciful.
+
+<hr>
