@@ -1791,3 +1791,25 @@ https://quran.com/49/12
 - O you who have believed, avoid much [negative] assumption. Indeed, some assumption is sin. And do not spy or backbite each other. Would one of you like to eat the flesh of his brother when dead? You would detest it. And fear Allāh; indeed, Allāh is Accepting of Repentance and Merciful.
 
 <hr>
+
+## One hand washes the other
+
+### Meaning
+Conveys the idea of mutual cooperation and reciprocity. It suggests that when two people work together, each benefits from the other’s efforts, and that their joint actions can lead to a positive outcome.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/7/189
+
+- It is He who created you from one soul and created from it its mate that he1 might dwell in security with her. And when he [i.e., man] covers her,2 she carries a light burden [i.e., a pregnancy] and continues therein. And when it becomes heavy, they both invoke Allāh, their Lord, "If You should give us a good3 [child], we will surely be among the grateful."
+
+https://quran.com/5/2
+
+- O you who have believed, do not violate the rites of Allāh or [the sanctity of] the sacred month or [neglect the marking of] the sacrificial animals and garlanding [them] or [violate the safety of] those coming to the Sacred House seeking bounty from their Lord and [His] approval. But when you come out of iḥrām, then [you may] hunt. And do not let the hatred of a people for having obstructed you from al-Masjid al-Ḥarām lead you to transgress. And cooperate in righteousness and piety, but do not cooperate in sin and aggression. And fear Allāh; indeed, Allāh is severe in penalty.
+
+https://quran.com/61/4
+
+- Indeed, Allāh loves those who fight in His cause in a row as though they are a [single] structure joined firmly.
+
+
+<hr>
