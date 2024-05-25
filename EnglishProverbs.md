@@ -1792,7 +1792,7 @@ https://quran.com/49/12
 
 <hr>
 
-## One hand washes the other
+## One hand washes the other, and both wash the face
 
 ### Meaning
 Conveys the idea of mutual cooperation and reciprocity. It suggests that when two people work together, each benefits from the other’s efforts, and that their joint actions can lead to a positive outcome.
