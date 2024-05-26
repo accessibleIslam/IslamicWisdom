@@ -624,6 +624,21 @@ https://quran.com/87/16
 - **But you prefer the worldly life,**
 - **While the Hereafter is better and more enduring.**
 
+https://quran.com/2/200
+
+- And when you have completed your rites, remember Allāh like your [previous] remembrance of your fathers or with [much] greater remembrance. And among the people is he who says, "Our Lord, give us in this world," and he will have in the Hereafter no share.
+- But among them is he who says, "Our Lord, give us in this world [that which is] good and in the Hereafter [that which is] good and protect us from the punishment of the Fire."
+- Those will have a share of what they have earned, and Allāh is swift in account.
+
+https://quran.com/3/187
+
+- And [mention, O Muḥammad], when Allāh took a covenant from those who were given the Scripture, [saying], "You must make it clear [i.e., explain it] to the people and not conceal it." But they threw it away behind their backs and exchanged it for a small price. And wretched is that which they purchased.
+
+https://quran.com/2/89
+
+- And when there came to them a Book [i.e., the Qur’ān] from Allāh confirming that which was with them - although before they used to pray for victory against those who disbelieved - but [then] when there came to them that which they recognized, they disbelieved in it; so the curse of Allāh will be upon the disbelievers.
+- How wretched is that for which they sold themselves - that they would disbelieve in what Allāh has revealed through [their] outrage that Allāh would send down His favor upon whom He wills from among His servants. So they returned having [earned] wrath upon wrath. And for the disbelievers is a humiliating punishment.
+
 <hr>
 
 ## Don't judge a book by its cover
