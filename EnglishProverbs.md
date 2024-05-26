@@ -413,7 +413,7 @@ https://quran.com/80/5
 - While he fears [Allāh],
 - From him you are distracted.
 - No! Indeed, they [i.e., these verses] are a reminder;
-- So whoever wills may remember it.<sup foot_note=197707>1</sup>
+- So whoever wills may remember it.
 - [It is recorded] in honored sheets,
 - Exalted and purified,
 - [Carried] by the hands of messenger-angels,
@@ -560,8 +560,7 @@ https://quran.com/6/68
 
 - **And when you see those who engage in [offensive] discourse concerning Our verses, then turn away from them until they enter into another conversation. And if Satan should cause you to forget, then do not remain after the reminder with the wrongdoing people.**
 - **And those who fear Allāh are not held accountable for them [i.e., the disbelievers] at all, but [only for] a reminder - that perhaps they will fear Him.**
-- **And leave those who take their religion as amusement and diversion and whom the worldly life has deluded. But remind with it [i.e., the Qur’ān], lest a soul be given up to destruction for what it earned; it will have other than Allāh no protector and no intercessor. And if it should offer every compensation, it would not be taken from it [i.e., that soul]. Those are the ones who are given to destruction for what they have earned. For them will be a drink of scalding water and a painful punishment because they used to disbelieve.
-**
+- **And leave those who take their religion as amusement and diversion and whom the worldly life has deluded. But remind with it [i.e., the Qur’ān], lest a soul be given up to destruction for what it earned; it will have other than Allāh no protector and no intercessor. And if it should offer every compensation, it would not be taken from it [i.e., that soul]. Those are the ones who are given to destruction for what they have earned. For them will be a drink of scalding water and a painful punishment because they used to disbelieve.**
   
 <hr>
 
