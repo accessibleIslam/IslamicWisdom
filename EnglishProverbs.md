@@ -1616,6 +1616,10 @@ https://quran.com/13/33
 
 - Then is He who is a maintainer of every soul, [knowing] what it has earned, [like any other]? But to Allāh they have attributed partners. Say, "Name them. Or do you inform Him of that which He knows not upon the earth or of what is apparent [i.e., alleged] of speech?" Rather, their [own] plan has been made attractive to those who disbelieve, and they have been averted from the way. And whomever Allāh sends astray - there will be for him no guide.
 
+https://quran.com/49/7
+
+- And know that among you is the Messenger of Allāh. If he were to obey you in much of the matter, you would be in difficulty, but Allāh has endeared to you the faith and has made it pleasing in your hearts and has made hateful to you disbelief, defiance and disobedience. Those are the [rightly] guided.
+
 <hr>
 
 ## Empty vessels make the most sound
