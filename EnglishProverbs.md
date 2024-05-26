@@ -1801,7 +1801,7 @@ Conveys the idea of mutual cooperation and reciprocity. It suggests that when tw
 
 https://quran.com/7/189
 
-- It is He who created you from one soul and created from it its mate that he1 might dwell in security with her. And when he [i.e., man] covers her,2 she carries a light burden [i.e., a pregnancy] and continues therein. And when it becomes heavy, they both invoke Allāh, their Lord, "If You should give us a good3 [child], we will surely be among the grateful."
+- It is He who created you from one soul and created from it its mate that he might dwell in security with her. And when he [i.e., man] covers her, she carries a light burden [i.e., a pregnancy] and continues therein. And when it becomes heavy, they both invoke Allāh, their Lord, "If You should give us a good [child], we will surely be among the grateful."
 
 https://quran.com/5/2
 
@@ -1810,6 +1810,5 @@ https://quran.com/5/2
 https://quran.com/61/4
 
 - Indeed, Allāh loves those who fight in His cause in a row as though they are a [single] structure joined firmly.
-
 
 <hr>
