@@ -1834,3 +1834,17 @@ https://quran.com/61/4
 - Indeed, Allāh loves those who fight in His cause in a row as though they are a [single] structure joined firmly.
 
 <hr>
+
+## A bad penny always turns up
+
+### Meaning
+A person or thing which is unpleasant, dishonorable, or unwanted tends to appear (or reappear), especially at inopportune times.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/33/13
+
+- And when a faction of them said, "O people of Yathrib,1 there is no stability for you [here], so return [home]." And a party of them asked permission of the Prophet, saying, "Indeed, our houses are exposed [i.e., unprotected]," while they were not exposed. They did not intend except to flee.
+- And if they had been entered upon from all its [surrounding] regions and fitnah [i.e., disbelief] had been demanded of them, they would have done it and not hesitated over it except briefly.
+
+<hr>
