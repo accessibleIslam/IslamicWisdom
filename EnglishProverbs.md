@@ -1862,3 +1862,16 @@ https://quran.com/9/46
 - Had they gone forth with you, they would not have increased you except in confusion, and they would have been active among you, seeking [to cause] you fitnah [i.e., chaos and dissension]. And among you are avid listeners to them. And Allāh is Knowing of the wrongdoers.
 
 <hr>
+
+## A fool and his money are soon parted
+
+### Meaning
+It is difficult or unlikely that careless and irresponsible individuals will maintain their hold on acquired wealth.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/4/5
+
+- And do not give the weak-minded your property, which Allāh has made a means of sustenance for you, but provide for them with it and clothe them and speak to them words of appropriate kindness.
+
+<hr>
