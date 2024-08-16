@@ -1844,7 +1844,7 @@ A person or thing which is unpleasant, dishonorable, or unwanted tends to appear
 
 https://quran.com/33/13
 
-- And when a faction of them said, "O people of Yathrib,1 there is no stability for you [here], so return [home]." And a party of them asked permission of the Prophet, saying, "Indeed, our houses are exposed [i.e., unprotected]," while they were not exposed. They did not intend except to flee.
+- And when a faction of them said, "O people of Yathrib, there is no stability for you [here], so return [home]." And a party of them asked permission of the Prophet, saying, "Indeed, our houses are exposed [i.e., unprotected]," while they were not exposed. They did not intend except to flee.
 - And if they had been entered upon from all its [surrounding] regions and fitnah [i.e., disbelief] had been demanded of them, they would have done it and not hesitated over it except briefly.
 
 <hr>
