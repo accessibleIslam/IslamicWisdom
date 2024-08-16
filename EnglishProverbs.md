@@ -1848,3 +1848,17 @@ https://quran.com/33/13
 - And if they had been entered upon from all its [surrounding] regions and fitnah [i.e., disbelief] had been demanded of them, they would have done it and not hesitated over it except briefly.
 
 <hr>
+
+## A chain is only as strong as its weakest link
+
+### Meaning
+An organization is only as strong or powerful as its weakest person. A group of associates is only as strong as its laziest member.
+
+### Relevant verses from the Qur'an
+
+https://quran.com/9/46
+
+- And if they had intended to go forth, they would have prepared for it [some] preparation. But Allāh disliked their being sent, so He kept them back, and they were told, "Remain [behind] with those who remain."
+- Had they gone forth with you, they would not have increased you except in confusion, and they would have been active among you, seeking [to cause] you fitnah [i.e., chaos and dissension]. And among you are avid listeners to them. And Allāh is Knowing of the wrongdoers.
+
+<hr>
